@@ -18,6 +18,8 @@ Esl culips</a>
      
 <p><a href="https://www.daohangtx.com/" title="Title"></p>
 QQ技术导航</a> 
+<p><a href="http://32dh.com/" title="Title"></p>
+Wz导航</a> 
 
 #Project 4: Get the ebook skill 
 <p>[超级聊天术].(日)斋藤孝 </p>
