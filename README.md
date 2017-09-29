@@ -27,3 +27,8 @@ Wz导航</a>
 #Project 5: Beatbox
 
 https://www.youtube.com/user/Pepouni/videos
+
+#Project 6 :Wordpress 
+http://www.dreamdu.com/ 
+
+
