@@ -37,3 +37,4 @@ http://www.dreamdu.com/
 
 <p>http://i.youku.com/i/UNDE4MzQ2MzYyOA==?spm=a2h0j.8191423.subscription_wrap.DD~A </p> 第一资讯
 
+<p>http://i.youku.com/i/UMzAwNjEwMjg4?spm=a2h0j.8191423.subscription_wrap.DD~A </p>  封面资讯
