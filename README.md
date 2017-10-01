@@ -45,3 +45,9 @@ http://www.dreamdu.com/
 http://www.importnew.com/ 
 
 Way to explore V2EX  : <p>https://www.v2ex.com/</p>
+
+
+#Project 8: Mindset 
+要不断舍弃成功，因为在创新的道路上有许多人模仿。 
+
+
