@@ -58,4 +58,10 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 #Project 8: Mindset 
 要不断舍弃成功，因为在创新的道路上有许多人模仿。 
 
+<p>The most biggest change I made was my diet . I stop eatting fast food and junk food </p>
 
+
+
+noun
+1.
+food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a standardized method and can be dispensed quickly at inexpensive restaurants for eating there or elsewhere.
