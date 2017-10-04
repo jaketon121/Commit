@@ -68,4 +68,4 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 
 #Project 8： Small talk 
 
-
+#Project 9： Life style 
