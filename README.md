@@ -31,6 +31,9 @@ Wz导航</a>
 
 #Project 4: Get the ebook skill 
 <p>[超级聊天术].(日)斋藤孝 </p>
+<p>Buy your own island </p>
+<p>50 law </p>
+
 
 #Project 5: Beatbox
 
