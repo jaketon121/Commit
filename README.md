@@ -65,3 +65,7 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 noun
 1.
 food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a standardized method and can be dispensed quickly at inexpensive restaurants for eating there or elsewhere.
+
+#Project 8： Small talk 
+
+
