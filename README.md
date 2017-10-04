@@ -60,6 +60,8 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 
 #Project 8: Mindset 
 要不断舍弃成功，因为在创新的道路上有许多人模仿。 
+<p> 如果一个人勤劳而得不到某种欲望上的满足，那他的勤劳就不会持续。</p>
+<p>成功不是偶然也就是说成功有必然的因素条件，这个计算得非常好才可以的。 </p>
 
 <p>The most biggest change I made was my diet . I stop eatting fast food and junk food </p>
 
