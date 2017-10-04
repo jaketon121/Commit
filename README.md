@@ -74,3 +74,7 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 #Project 10： 个人定位
 
 微博：http://weibo.com/verycrazy/
+
+#Project 11: 健身 瘦身
+1 气功
+
