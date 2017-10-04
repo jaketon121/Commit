@@ -69,3 +69,8 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 #Project 8： Small talk 
 
 #Project 9： Life style 
+
+
+#Project 10： 个人定位
+
+微博：http://weibo.com/verycrazy/
