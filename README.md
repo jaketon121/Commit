@@ -4,6 +4,7 @@
 # Commit    
 Im going to vlog 开心的事。
 你不知道的是不开心的事，你知道的是开心的事。
+乐华城·国际欢乐度假区是由陕西乐华恒业投资（集团）股份有限公司投资建设的新锐旅游品牌。
 
 Act Index：
 Project things put in cleader .
@@ -88,4 +89,11 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 正骨师：   1 冰淇淋 2 转肩膀 
 
 #Project 12: Math 
+
+#Project 13: Buddhism
+
+#Project 14: Martial art 
+
+#Project 15:NLP+hypnosis=sale
+
 
