@@ -1,0 +1,960 @@
+1
+00:00:00,920 --> 00:00:08,519
+so this question comes from anonymous um
+let's see here I have a problem with the
+
+2
+00:00:08,519 --> 00:00:12,990
+IT field particularly with software
+development I graduated as a programmer
+
+3
+00:00:12,990 --> 00:00:16,260
+from a community college but found it
+difficult to find a job as a developer
+
+4
+00:00:16,260 --> 00:00:20,970
+if I were to look for a c-sharp role I
+would find experience for C sharp but
+also a number of other languages or
+
+5
+00:00:22,890 --> 00:00:26,519
+experience needed in technologies that I
+haven't heard of it seems like to be a
+developer I need to know 20 different
+
+6
+00:00:27,930 --> 00:00:31,109
+things just to be qualified as a
+developer for a particular language
+
+7
+00:00:31,109 --> 00:00:35,489
+because of this I haven't been able to
+apply to any jobs because I don't have
+experience with certain technologies and
+
+8
+00:00:37,140 --> 00:00:41,280
+as a result I've been working as a help
+desk analyst since I meet the
+
+9
+00:00:41,280 --> 00:00:45,300
+requirements for that role and as an IT
+guy who learned things as time went by
+
+10
+00:00:45,300 --> 00:00:50,039
+why is this the case and how do I tackle
+this issue in order to start my career
+
+11
+00:00:50,039 --> 00:01:00,059
+as a developer right ah oh you poor dumb
+bastard you poor poor dumb dumb bastard
+
+12
+00:01:00,059 --> 00:01:04,920
+are you really telling me you are not
+applying for jobs because you don't fit
+
+13
+00:01:04,920 --> 00:01:13,110
+into the mold of the Job Description oh
+my boy my boy my boy and this is one of
+
+14
+00:01:13,110 --> 00:01:16,229
+the problems that we run into in the
+modern world of Technology is the fact
+
+15
+00:01:16,229 --> 00:01:21,780
+of the matter is as applicants don't
+seem to understand a reality right so
+
+16
+00:01:21,780 --> 00:01:26,610
+here I want to explain something to you
+about how job postings get created what
+
+17
+00:01:26,610 --> 00:01:31,409
+does the sausage factory of job postings
+get it created so here's the deal you
+
+18
+00:01:31,409 --> 00:01:34,950
+have an IT manager somewhere or you have
+a software engineer manager somewhere
+
+19
+00:01:34,950 --> 00:01:39,360
+and they have a project to get done
+right so the c-level executives have
+
+20
+00:01:39,360 --> 00:01:43,110
+dumped this project onto them and they
+are trying to get it done because if
+
+21
+00:01:43,110 --> 00:01:46,560
+they don't get the project done things
+are going to go bad for them they're
+
+22
+00:01:46,560 --> 00:01:49,740
+either not going to get promoted or
+they're going to get fired whatever
+right again in the technology world it's
+
+23
+00:01:52,079 --> 00:01:55,950
+all about getting the job done and so
+they get this project to dump dumped on
+
+24
+00:01:55,950 --> 00:01:59,130
+them they're trying to figure out how to
+get it done and what they find out is
+one of the things that don't have is
+
+25
+00:02:00,180 --> 00:02:05,159
+enough manpower they need more geeks
+right so here's the deal so they look at
+
+26
+00:02:05,159 --> 00:02:09,239
+it and being geeks themselves they go I
+need more geeks and so they go to the
+
+27
+00:02:09,239 --> 00:02:12,810
+human resources department and they say
+human resources person but Department
+
+28
+00:02:12,810 --> 00:02:16,830
+get
+more geeks and the human resources part
+
+29
+00:02:16,830 --> 00:02:22,470
+department person looks at that looks at
+that manager sips a little bit cup of
+
+30
+00:02:22,470 --> 00:02:28,230
+coffee looks at the manager for a couple
+more seconds and then says what do you
+
+31
+00:02:28,230 --> 00:02:33,300
+mean by a geek
+I need more geeks well I understand you
+
+32
+00:02:33,300 --> 00:02:37,350
+need more geeks but what does that mean
+I'm a human resources person I don't
+really know what a geek is what
+
+33
+00:02:39,450 --> 00:02:43,650
+qualifications does this person need and
+the IT manager looks at the human
+
+34
+00:02:43,650 --> 00:02:47,220
+resources person and thinks that that
+Human Resources person is basically just
+
+35
+00:02:47,220 --> 00:02:52,770
+something a little bit above pond scum
+and goes do I have to do everything for
+
+36
+00:02:52,770 --> 00:02:57,660
+you I have this project to get done I
+have 20 people to manage I have a
+
+37
+00:02:57,660 --> 00:03:02,100
+million dollars on the table and if I
+screw up it's all going to go to hell I
+
+38
+00:03:02,100 --> 00:03:08,340
+don't have time to do your job and Human
+Resources personally I'll pick up that
+
+39
+00:03:08,340 --> 00:03:15,030
+cup of coffee sip just stare at the IT
+man you're like okay I don't know what
+
+40
+00:03:15,030 --> 00:03:18,780
+you need I don't know the difference
+between c-sharp developers or Java
+
+41
+00:03:18,780 --> 00:03:23,040
+developers or MCS II said I don't know
+any of that stuff so you have to sit
+
+42
+00:03:23,040 --> 00:03:27,540
+down and you have to create a job
+description for me so I can get go out
+
+43
+00:03:27,540 --> 00:03:33,360
+and find you one of these geeks the IT
+managers cards yeah what is wrong with
+
+44
+00:03:33,360 --> 00:03:39,150
+you I have so much on my shoulders and
+you want me to write a freaking paper
+
+45
+00:03:39,150 --> 00:03:45,600
+about what I need and so the Human
+Resources person accepted okay I tell
+
+46
+00:03:45,600 --> 00:03:48,150
+you what I tell you what I've got a
+couple of minutes here you got a couple
+
+47
+00:03:48,150 --> 00:03:53,850
+minutes ah I guess I've got a couple min
+herei got a couple minutes I'm gonna
+
+48
+00:03:53,850 --> 00:03:57,510
+pull out a notepad and we're just gonna
+talk about what you need and I'll write
+
+49
+00:03:57,510 --> 00:04:02,760
+up the job description for you that's
+what I'm saying you should do oh okay
+
+50
+00:04:02,760 --> 00:04:07,890
+okay so Wow so you need a developer
+right yeah yeah of course I needed if I
+
+51
+00:04:07,890 --> 00:04:12,810
+told you I need Avella per you need a
+developer so um so how much experience
+
+52
+00:04:12,810 --> 00:04:17,850
+you're this person have well I'd like to
+have somebody with 10 years experience
+
+53
+00:04:17,850 --> 00:04:23,880
+okay so needs 10 years experience okay
+so what programming languages are is
+
+54
+00:04:23,880 --> 00:04:27,210
+this person going to be using well you
+know we're a Java shop
+
+55
+00:04:27,210 --> 00:04:32,069
+obviously you know that oh yeah sure I
+know where a Java shop okay needs Java
+
+56
+00:04:32,069 --> 00:04:37,680
+and what else well we're also using you
+know JavaScript or using PHP okay NEAs
+
+57
+00:04:37,680 --> 00:04:43,680
+JavaScript needs PHP and you know we've
+we have these iOS apps coming out so we
+
+58
+00:04:43,680 --> 00:04:49,530
+need somebody that understands iOS
+development okay needs Iowa see here
+here's what happens when that mash of a
+
+59
+00:04:52,740 --> 00:04:57,479
+of a Job Description gets created
+basically what you have is you have an
+
+60
+00:04:57,479 --> 00:05:03,660
+IT manager throwing out like their wish
+list of things to find and you have the
+
+61
+00:05:03,660 --> 00:05:08,610
+human resources person basically putting
+need in front of every item on that wish
+
+62
+00:05:08,610 --> 00:05:13,830
+list here's a reality nobody fits that
+description no buddy
+fits that description does not exist so
+
+63
+00:05:18,270 --> 00:05:21,300
+what happens in the real world in the
+real world and this is why I'm calling
+
+64
+00:05:21,300 --> 00:05:24,389
+you a poor dumb bastard right at the
+second I can say that because you said
+
+65
+00:05:24,389 --> 00:05:28,560
+to call you anonymous right is what
+happens in the real world right so you
+
+66
+00:05:28,560 --> 00:05:34,440
+get this Airy fairy cotton candy fairy
+dust Job Description that literally
+
+67
+00:05:34,440 --> 00:05:38,820
+nobody in the world can fill that job
+description is then what gets posted to
+
+68
+00:05:38,820 --> 00:05:43,770
+monster and all those other places right
+and then people apply to that job now
+
+69
+00:05:43,770 --> 00:05:47,370
+here's the thing we are in the real
+world if we lived in a perfect Fe in
+
+70
+00:05:47,370 --> 00:05:52,530
+Utopia every time I put out a help
+wanted ad I would get a whole list of
+candidates that actually fit that help
+
+71
+00:05:54,120 --> 00:05:58,889
+wanted ad that's what never never never
+happens that never happens what you get
+
+72
+00:05:58,889 --> 00:06:02,969
+is you get a whole mess of candidates
+that have some of these skills and have
+
+73
+00:06:02,969 --> 00:06:05,849
+some of that skill ooh
+they know this programming language but
+
+74
+00:06:05,849 --> 00:06:08,940
+they don't they only have two years
+experience this person has ten years
+
+75
+00:06:08,940 --> 00:06:14,159
+experience but doesn't know that and
+basically you then have to as the
+
+76
+00:06:14,159 --> 00:06:18,810
+employer as the IT manager you have to
+sort through this stupid ridiculous mess
+
+77
+00:06:18,810 --> 00:06:23,430
+to figure out who you want to hire right
+this this was this was really driven
+
+78
+00:06:23,430 --> 00:06:27,870
+home to me again back when I was at 20
+23 and I was doing that whole regional
+
+79
+00:06:27,870 --> 00:06:31,830
+support thing because we had to hire
+somebody and that was a thing is what we
+
+80
+00:06:31,830 --> 00:06:34,320
+did one of the reasons I'm qualified in
+so many things
+
+81
+00:06:34,320 --> 00:06:40,740
+that I am now is because nobody did what
+we did again the networking the the
+
+82
+00:06:40,740 --> 00:06:44,880
+the desktop support the telephone
+systems build-outs
+
+83
+00:06:44,880 --> 00:06:50,220
+like the stuff that was on our plate
+just fundamentally encompassed many
+
+84
+00:06:50,220 --> 00:06:55,170
+different professions and so when we
+went out and I was responsible for for
+
+85
+00:06:55,170 --> 00:06:58,440
+wading through the resumes to find
+people I mean that was a thing it was
+
+86
+00:06:58,440 --> 00:07:02,910
+like oh look this guy knows what the
+hell Definity is but has never touched
+
+87
+00:07:02,910 --> 00:07:06,300
+Cisco equipment ok well this guy is
+really great at Cisco equipment but
+
+88
+00:07:06,300 --> 00:07:10,350
+doesn't know telephone systems and then
+you sit there and like well we had the
+
+89
+00:07:10,350 --> 00:07:14,130
+data comm department back you know a
+main headquarters who doesn't really let
+
+90
+00:07:14,130 --> 00:07:17,880
+us touch the Cisco equipment very much
+so you know at Cisco it would be nice to
+
+91
+00:07:17,880 --> 00:07:20,520
+have something with Cisco experience but
+it's actually not really necessary I'd
+
+92
+00:07:20,520 --> 00:07:24,570
+prefer to have somebody with telephone
+systems in Minnesota experience okay so
+
+93
+00:07:24,570 --> 00:07:28,140
+we'll go with this guy right and that's
+how it works so um so if you're not
+
+94
+00:07:28,140 --> 00:07:35,040
+applying for jobs because you don't fit
+the mold oh I'm sorry I'm sorry you
+
+95
+00:07:35,040 --> 00:07:38,880
+don't understand how this game is played
+you have set yourself back like a year
+
+96
+00:07:38,880 --> 00:07:43,650
+simply because you don't know how the
+game is played what you want to do is
+
+97
+00:07:43,650 --> 00:07:46,830
+you want to apply for every job you want
+to get right you want to go out there
+
+98
+00:07:46,830 --> 00:07:50,340
+you want to look for companies that you
+want to work for you want job positions
+
+99
+00:07:50,340 --> 00:07:54,090
+that you want to get and then you apply
+for that job description because
+
+100
+00:07:54,090 --> 00:07:57,660
+especially being a programmer right now
+they're truly truly there are not enough
+
+101
+00:07:57,660 --> 00:08:03,960
+programmers there's more than enough
+Cisco people MCSE novice the MC SES
+there's more than there's more than
+
+102
+00:08:05,580 --> 00:08:09,660
+enough of a lot of technical skill sets
+in the development world there frankly
+
+103
+00:08:09,660 --> 00:08:12,900
+there isn't enough there's something
+like a hundred thousand open positions
+so the reality is is you're going to go
+
+104
+00:08:14,490 --> 00:08:18,900
+out you're going to apply to a lot of
+these jobs what you find out is one
+sometimes they will take you simply
+
+105
+00:08:22,290 --> 00:08:25,230
+because you're the best damn thing they
+got you know they may want somebody with
+
+106
+00:08:25,230 --> 00:08:29,880
+ten years experience right I want to
+hire somebody with 50 years experience I
+
+107
+00:08:29,880 --> 00:08:35,730
+want somebody that was with Bill Gates
+when all this stuff originally got coded
+
+108
+00:08:35,730 --> 00:08:40,260
+I'm not going to get it right you know I
+can only hire the the applicants that
+
+109
+00:08:40,260 --> 00:08:43,080
+actually apply so one of the things you
+have to think about is when you apply to
+
+110
+00:08:43,080 --> 00:08:47,070
+these positions they can only hire and
+that's the thing like it like a lot of
+
+111
+00:08:47,070 --> 00:08:52,050
+you guys don't understand is money is
+budgeted out so like when all the
+managers in the sea levels are
+
+112
+00:08:53,970 --> 00:08:57,509
+are going head-to-head right there's a
+lot of arguments about how many new
+
+113
+00:08:57,509 --> 00:09:00,720
+employees are going to be hired and so
+one of the issues that happens with
+
+114
+00:09:00,720 --> 00:09:04,410
+departments is a lot of times
+departments will get a window for hiring
+people so you'll get a call from your
+
+115
+00:09:07,350 --> 00:09:12,750
+your CIO or your director of IT and
+they'll be like you know listen I've
+
+116
+00:09:12,750 --> 00:09:17,519
+gotten to go ahead for two technicians
+you need to hire them in the next month
+
+117
+00:09:17,519 --> 00:09:20,699
+and you know what why do we need to hire
+them in the next month and because
+
+118
+00:09:20,699 --> 00:09:23,819
+they'll be like because if you don't
+hire them in the next month the money
+
+119
+00:09:23,819 --> 00:09:27,420
+gets rereleased back into the system and
+I'm gonna have to go to the same
+
+120
+00:09:27,420 --> 00:09:32,310
+stupid-ass argument again so you have
+one month to find two people and get
+
+121
+00:09:32,310 --> 00:09:36,449
+them in the slot so you know again
+sometimes you know there's what we want
+
+122
+00:09:36,449 --> 00:09:40,350
+and then you know you're running you're
+you're you're three and a half weeks
+
+123
+00:09:40,350 --> 00:09:44,009
+into the process you haven't found a
+perfect person but you've got like these
+
+124
+00:09:44,009 --> 00:09:47,459
+resumes in front of you you're like you
+know what these two people don't piss me
+off
+
+125
+00:09:47,819 --> 00:09:52,800
+screw it I can hire that I've got the
+money to hire them right now if I wait
+
+126
+00:09:52,800 --> 00:09:56,519
+another seven days we lose that money
+these people got hired right so that's
+
+127
+00:09:56,519 --> 00:09:59,670
+the first thing that can happen is just
+because how things work you may get
+
+128
+00:09:59,670 --> 00:10:04,170
+hired for the position the other thing
+that happens is also realize whenever
+
+129
+00:10:04,170 --> 00:10:09,720
+you're dealing with companies or
+organizations more is going on than you
+
+130
+00:10:09,720 --> 00:10:14,670
+see we get this view and in for
+ourselves we get very tunnel vision you
+know I want this job I'm applying for
+
+131
+00:10:17,879 --> 00:10:22,559
+this job again if I am an IT director an
+IT manager and I am building out a
+
+132
+00:10:22,559 --> 00:10:28,319
+department guess what I may have twenty
+jobs to fill that you may not realize so
+
+133
+00:10:28,319 --> 00:10:32,610
+you see this one job for like senior C
+sharp developer no way in hell you're
+
+134
+00:10:32,610 --> 00:10:38,639
+actually gonna get the resume comes in I
+pick up the resume and go well I don't
+
+135
+00:10:38,639 --> 00:10:41,910
+know why the hell is dumb ass is
+applying for this job but you know what
+
+136
+00:10:41,910 --> 00:10:48,180
+I do have a mid-level or a junior
+programmer a spot that I need filled let
+
+137
+00:10:48,180 --> 00:10:52,709
+me put this over here and I'll call and
+see if this guy is actually interested
+
+138
+00:10:52,709 --> 00:10:57,600
+right so those are all the kind of
+things that can happen so so nothing is
+
+139
+00:10:57,600 --> 00:11:01,949
+stopping you from applying you know
+because of this I haven't been able to
+apply no because of your own how you
+
+140
+00:11:06,569 --> 00:11:10,410
+think the world
+works you haven't applied you have been
+
+141
+00:11:10,410 --> 00:11:16,439
+able to you just have not actually done
+it so so now go out there apply for
+
+142
+00:11:16,439 --> 00:11:21,300
+every job that you want and you will be
+surprised how far you go because nope I
+
+143
+00:11:21,300 --> 00:11:26,639
+swear to you I swear to you I see this
+job as nobody has that Oh buddy and the
+
+144
+00:11:26,639 --> 00:11:30,360
+other thing too is what you have to
+realize like I see this a lot in the IT
+
+145
+00:11:30,360 --> 00:11:34,529
+world or I saw this a lot before and it
+would make me lose my mind because like
+
+146
+00:11:34,529 --> 00:11:39,269
+MS sequel will come up a lot so
+Microsoft's sequel database system right
+
+147
+00:11:39,269 --> 00:11:45,420
+and so you would see all of these job
+postings of needing experience with MS
+
+148
+00:11:45,420 --> 00:11:49,800
+sequel so like with me I'm a rather
+honest person so I do have some database
+
+149
+00:11:49,800 --> 00:11:56,249
+experience but it's not I wouldn't want
+to have to do a lot of database work in
+
+150
+00:11:56,249 --> 00:11:59,430
+a production environment you know if
+you've got some small little business
+with like five users fine whatever but
+
+151
+00:12:02,160 --> 00:12:05,459
+you know in a real production
+environment really having to like
+
+152
+00:12:05,459 --> 00:12:10,199
+maintain and do all the maintenance and
+cleanup with them the MS sequel I just I
+
+153
+00:12:10,199 --> 00:12:13,980
+just don't know I just don't have that
+particular skillset but that was a funny
+
+154
+00:12:13,980 --> 00:12:17,970
+part is like so many of these jobs you
+would see like this experience MS sequel
+
+155
+00:12:17,970 --> 00:12:22,980
+and so it's like oh I can't do MS sequel
+well then then comes to find out right
+
+156
+00:12:22,980 --> 00:12:26,189
+and this is what I've seen so many times
+because MS sequel is one
+
+157
+00:12:26,189 --> 00:12:29,430
+I know because I've seen this like 20
+times and I just want to smack somebody
+
+158
+00:12:29,430 --> 00:12:34,470
+cuz it's so fucking stupid so you don't
+need experience with MS Eagle see what
+
+159
+00:12:34,470 --> 00:12:39,629
+they have is they have some customized
+app in the company that connects back
+
+160
+00:12:39,629 --> 00:12:45,649
+into an MS sequel back-end but you never
+mess with that right you install the app
+
+161
+00:12:45,649 --> 00:12:51,000
+you point it to the database you may
+have to clear out some cash or something
+
+162
+00:12:51,000 --> 00:12:58,019
+but you don't in fact ever ever ever
+ever tidy the MS sequel database that is
+
+163
+00:12:58,019 --> 00:13:00,959
+somebody else's responsibility some of
+the it pays more money than you is
+responsible for that you're responsible
+
+164
+00:13:03,929 --> 00:13:08,790
+for again installing the custom app and
+pointed at the MS sequel well there is
+
+165
+00:13:08,790 --> 00:13:12,809
+there's a massive difference between
+installing an app and pointing it at a
+
+166
+00:13:12,809 --> 00:13:18,209
+sequel database versus actually having
+to administer a sequel database but you
+
+167
+00:13:18,209 --> 00:13:23,600
+see a time and time and time again knee
+M s equal experience right no you don't
+
+168
+00:13:23,600 --> 00:13:27,589
+and the reason you see that in the job
+description is because you know the IT
+
+169
+00:13:27,589 --> 00:13:31,339
+manager is all pissed off sitting there
+with a Human Resources person and the
+
+170
+00:13:31,339 --> 00:13:35,029
+Human Resources person goes okay well we
+got that custom app right is there
+anything people need to know well it
+
+171
+00:13:38,630 --> 00:13:46,370
+uses an MS sequel back-end oh ok so
+needs MS sequel right so and this is the
+
+172
+00:13:46,370 --> 00:13:49,580
+problem with communication in the modern
+world that I try to explain to you you
+
+173
+00:13:49,580 --> 00:13:56,209
+have a pissed-off egotistical head up
+their ass IT manager and you have a
+human resources person that hasn't
+
+174
+00:13:59,529 --> 00:14:04,820
+hasn't done the proper preparation in
+order to communicate so basically you
+
+175
+00:14:04,820 --> 00:14:10,610
+have a dimwit and the equivalent of a
+dimwit and the equivalent of just this
+
+176
+00:14:10,610 --> 00:14:14,930
+egotistical brat and they're trying to
+come together to write this job
+description and again this is where I
+
+177
+00:14:16,339 --> 00:14:21,290
+try to communicate to you guys is this
+is where communication is important the
+human resources person needs to learn
+
+178
+00:14:23,870 --> 00:14:29,600
+more about the jobs that they are
+supporting and the IT managers and the
+
+179
+00:14:29,600 --> 00:14:34,760
+other managers need to calm down every
+once in a while walk into these
+
+180
+00:14:34,760 --> 00:14:39,760
+situations and say I am going to give
+the Human Resources person 30 minutes of
+
+181
+00:14:39,760 --> 00:14:44,240
+honest calm time I'm not gonna have
+other things on my head I'm not going to
+
+182
+00:14:44,240 --> 00:14:47,420
+be jacked up on too much caffeine I'm
+going to walk in there I'm going to
+
+183
+00:14:47,420 --> 00:14:51,320
+treat the Human Resources person like
+they're an actual human being and we're
+
+184
+00:14:51,320 --> 00:14:54,680
+going to try to work this out but again
+what you see in the modern world what
+happens is this mess between human
+
+185
+00:14:56,270 --> 00:15:03,110
+versus an IT and yeah so so to apply
+apply for every single job you want
+
+186
+00:15:03,110 --> 00:15:07,190
+nothing is stopping you from applying
+and believe me you might be surprised
+
+187
+00:15:07,190 --> 00:15:10,180
+what you actually get
+
+Link :https://www.youtube.com/watch?v=6G3kQyqMFpQ
+
