@@ -88,8 +88,7 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 <p>在学校是有人帮你制定目标，而在外面你需要自己制定，学会挑战自己。</p>
 <p>The most biggest change I made was my diet . I stop eatting fast food and junk food </p>
 <p> Because everyone want be safe , So no make change. </p>
-
-  
+<p> 吸引点多少，引力和斥力就有多少。</p>
 
 
 noun
