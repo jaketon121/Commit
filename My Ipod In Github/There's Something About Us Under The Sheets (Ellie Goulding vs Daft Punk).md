@@ -4,7 +4,7 @@ http://www.xiami.com/song/1773353385
 
 # 歌词
 
-《There's Something About Us Under The Sheets (Ellie Goulding vs Daft Punk)》歌词：
+《There's Something About Us Under The Sheets (Ellie Goulding vs Daft Punk)》歌词：<br/>
 <br/>
 like all the boys before <br/>
 like all the boys, boys, boys<br/>
