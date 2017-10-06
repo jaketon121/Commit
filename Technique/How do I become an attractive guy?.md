@@ -23,33 +23,43 @@ To do this, I think two major first steps are involved:
 Between these various efforts, I think one can transform one's personality from one of insecurity and self-doubt to one of confidence and vulnerability. At least, this is how I did it.
 
 Having established to some degree self-esteem and confidence, the next stage I would recommend would involve development of social skills. These would include:
-Learning to read body language, especially that which indicates a woman is interested in you.
-Becoming aware of one's own body language, so as to project what you want to project, and not sabotage yourself with insecure body language habits.
-Becoming aware of the social meaning behind your vocal tonality, such that your voice is projecting the emotions and meaning you want it to.
-Learning how to carry conversations that create connections and communicate warmth.
-Learning how to engage people in a way that communicates status and confidence.
-Learning how to flirt and authentically communicate sexual interest in a woman you find attractive.
+<ul>
+<li>Learning to read body language, especially that which indicates a woman is interested in you.</li>
+<li>Becoming aware of one's own body language, so as to project what you want to project, and not sabotage yourself with insecure body language habits.</li>
+<li>Becoming aware of the social meaning behind your vocal tonality, such that your voice is projecting the emotions and meaning you want it to.</li>
+<li>Learning how to carry conversations that create connections and communicate warmth.</li>
+<li>Learning how to engage people in a way that communicates status and confidence.</li>
+<li>Learning how to flirt and authentically communicate sexual interest in a woman you find attractive.</li>
+</ul>
 Remember - the primary purpose of learning these skills is to free yourself to be more authentic. It is not to manipulate. If you try to use it for such, you will succeed in little except attracting women who behave in a similar way. People aren't stupid.
 
 Thirdly, it's a good idea to devote some attention to one's physical appearance, as while it is vastly less important to most women than your self-esteem and social skills (and less valuable to you too), it does matter. For this, I would suggest learning about:
-Hygiene and grooming
-Weightlifting
-Nutrition
-Fashion and style
+<ul>
+<li>Hygiene and grooming</li>
+<li>Weightlifting</li>
+<li>Nutrition</li>
+<li>Fashion and style</li>
+  </ul>
 Fourthly, I think some actual dating advice can be helpful. For example, try and look up:
-How to plan a good date
-Date ideas
-When and how to go for a kiss that is both confident and respects her boundaries
-How to make a good online dating profile
+<ul>
+<li>How to plan a good date</li>
+<li>Date ideas</li>
+<li>When and how to go for a kiss that is both confident and respects her boundaries</li>
+<li>How to make a good online dating profile</li>
+  </ul>
 Fifthly, when you're actually in a relationship of some variety with a woman, it's helpful to know a number of other things. Look into:
 Basic sexual technique
-How to communicate effectively with an intimate partner
-Dealing with conflict
+<ul>
+<li>How to communicate effectively with an intimate partner</li>
+<li>Dealing with conflict</li>
+</ul>
 Lastly, I think it's worth looking into some of the pitfalls of being hot, for example:
 Jealous other guys
-Women assuming you're not interested in commitment
-Women assuming they're not good enough for you
+<ul>
+<li>Women assuming you're not interested in commitment</li>
+<li>Women assuming they're not good enough for you</li>
 How to reject people
+  </ul>
 
 Obviously this is a bigger topic than can be discussed in a Quora answer, which is why I am writing a book. But that's most of what I suggest looking into. It is not a short journey, and it's not achieved by learning pickup lines, routines, etc. This is the best way I have found to become more attractive to the sorts of women I've wanted to be with. Everything I listed will make you more generally attractive, but by freeing you to be comfortable as your naturally vulnerable self, you will be exceptionally attractive to the women you will work best with.
 
