@@ -119,3 +119,6 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
  3 要服务到位，服务要持续化。只有持续的服务才有竞争力，所以要构建服务体系。
  4 包装要差异化。
  
+# 旅游攻略
+中国铁路服务中心 ：http://www.12306.cn/mormhweb/
+<p>蚂蜂网：http://www.mafengwo.cn/ </p>
