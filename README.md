@@ -95,6 +95,7 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 #Project 11: 健身 瘦身
 1 气功
 正骨师：   1 冰淇淋 2 转肩膀 
+2 每日腿部按摩
 
 #Project 12: Math 
 
