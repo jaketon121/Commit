@@ -9,7 +9,9 @@
               <p>艾米多导航 https://imduo.com/<p>
               <p>小米网赚导航 http://xiaomiwz.com/</p>
               <p>卡卡网赚导航 http://www.kakawz.com/<p>
-  
+3 Art of manhood :<p> Manhood art <br/> http://www.artofmanliness.com/ </p>
+
+         
 
 # Act set 
 1 将想法转换成一个个可执行的小目标，并且制定成计划。
