@@ -1,7 +1,15 @@
 
 
 
-# Commit    
+
+#Act set 
+1 将想法转换成一个个可执行的小目标，并且制定成计划。
+# Think set 
+1 Make tips list 
+2 Make to do list 
+3 Make plan list 
+
+# Commit    
 Im going to vlog 开心的事。
 你不知道的是不开心的事，你知道的是开心的事。
 乐华城·国际欢乐度假区是由陕西乐华恒业投资（集团）股份有限公司投资建设的新锐旅游品牌。
@@ -66,7 +74,7 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 要不断舍弃成功，因为在创新的道路上有许多人模仿。 
 <p> 如果一个人勤劳而得不到某种欲望上的满足，那他的勤劳就不会持续。</p>
 <p>成功不是偶然也就是说成功有必然的因素条件，这个计算得非常好才可以的。 </p>
-
+<p>在学校是有人帮你制定目标，而在外面你需要自己制定，学会挑战自己。</p>
 <p>The most biggest change I made was my diet . I stop eatting fast food and junk food </p>
 
 
