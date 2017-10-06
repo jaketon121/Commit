@@ -104,4 +104,10 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 
 #Project 15:NLP+hypnosis=sale
 
-
+# Project 16 营销
+ 营销破局 
+ 1 要主动营销
+ 2 要互动营销
+ 3 要服务到位，服务要持续化。只有持续的服务才有竞争力，所以要构建服务体系。
+ 4 包装要差异化。
+ 
