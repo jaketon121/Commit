@@ -1,7 +1,7 @@
 # 摘要 
-利用github的search功能
-利用github的Explore功能
-关注过后，我们就可以在github首页看到大神们star、fork等动作
+<p>利用github的search功能</p>
+<p>利用github的Explore功能</p>
+<p>关注过后，我们就可以在github首页看到大神们star、fork等动作</p>
 
 # 正文
 
