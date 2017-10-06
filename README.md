@@ -87,7 +87,9 @@ Way to explore V2EX  : <p>https://www.v2ex.com/</p>
 <p>成功不是偶然也就是说成功有必然的因素条件，这个计算得非常好才可以的。 </p>
 <p>在学校是有人帮你制定目标，而在外面你需要自己制定，学会挑战自己。</p>
 <p>The most biggest change I made was my diet . I stop eatting fast food and junk food </p>
+<p> Because everyone want be safe , So no make change. </p>
 
+  
 
 
 noun
