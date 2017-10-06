@@ -124,6 +124,7 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 中国铁路服务中心 ：http://www.12306.cn/mormhweb/
 <p>蚂蜂网：http://www.mafengwo.cn/ </p>
 <p>穷游网： http://www.qyer.com/</p>
+<p>动物园贴吧 <br/> https://tieba.baidu.com/f?kw=%E5%8A%A8%E7%89%A9%E5%9B%AD&ie=utf-8&tp=0</p>
 
 # 游戏攻略
 <p>游戏堡<br/>http://www.yxbao.com/</p>
