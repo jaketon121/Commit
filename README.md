@@ -3,6 +3,7 @@
 1 15min 新闻 ：<p>http://www.dailymail.co.uk/home/index.html</p>
               <p>https://www.btime.com/</p>
               <p>凯迪社区 <br/>http://club.kdnet.net/</p>
+              <p>Esquire <br/>http://www.esquire.com/ </p>
 2 15min QQ技术：<p> http://www.gohao123.com/ </p>
               <p>https://www.daohangtx.com/</p>
               <p>艾米多导航 https://imduo.com/<p>
