@@ -1,5 +1,11 @@
 
-
+#Daily mail task 
+1 15min 新闻 ：http://www.dailymail.co.uk/home/index.html
+              <p>https://www.btime.com/</p>
+2 15min QQ技术：<p> http://www.gohao123.com/ </p>
+              <p>https://www.daohangtx.com/</p>
+              
+              
 
 
 #Act set 
