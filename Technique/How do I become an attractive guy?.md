@@ -6,16 +6,20 @@ The first thing you need to accept is that you will never be attractive to every
 For this reason, I maintain that one should not aim to be generally attractive, as this is a guaranteed path to failure. Rather aim to be authentic, such that women who are compatible with you will be extremely attracted to you, and women who are not right for you will be repulsed by you. This makes life easier for you in the long run.
 
 To do this, I think two major first steps are involved:
-Developing an understanding of your authentic self and a comfort with sharing your authentic self with others.
-Overcoming one's fear of rejection and disapproval.
-These are no small tasks. There are a variety of ways one might go about addressing these problems. I suggest the following:
-Cognitive behavioral therapy to address one's inner critic and other self-defeating thoughts.
-Exposure therapy to address social anxiety.
-Cognitive reframing for in-situ handling of self-esteem threats.
-Various willpower techniques to know how to keep going when you face inevitable pitfalls.
-Various habit-setting techniques which will hopefully be in place when willpower inevitably fails.
-Setting habits that are consistent with a belief in your own value, so as to cause cognitive dissonance with any "I am worthless and unlovable" beliefs you may have.
-A general commitment to do things out of one's own comfort zone.
+<ul>
+<li>Developing an understanding of your authentic self and a comfort with sharing your authentic self with others.</li>
+  <li>Overcoming one's fear of rejection and disapproval.</li>
+  <ul>
+<li>These are no small tasks. There are a variety of ways one might go about addressing these problems. I suggest the following:
+ <ul>
+<li>Cognitive behavioral therapy to address one's inner critic and other self-defeating thoughts.</li>
+<li>Exposure therapy to address social anxiety.</li>
+<li>Cognitive reframing for in-situ handling of self-esteem threats.</li>
+<li>Various willpower techniques to know how to keep going when you face inevitable pitfalls.</li>
+<li>Various habit-setting techniques which will hopefully be in place when willpower inevitably fails.</li>
+<li>Setting habits that are consistent with a belief in your own value, so as to cause cognitive dissonance with any "I am worthless and unlovable" beliefs you may have.</li>
+<li>A general commitment to do things out of one's own comfort zone.</li>
+   <ul>
 Between these various efforts, I think one can transform one's personality from one of insecurity and self-doubt to one of confidence and vulnerability. At least, this is how I did it.
 
 Having established to some degree self-esteem and confidence, the next stage I would recommend would involve development of social skills. These would include:
