@@ -18,3 +18,7 @@ to mix with and join society or a group of people, often changing to suit their 
 # analogy
 a comparison between things that have similar features, often used to help explain a principle or idea 類似；類比；比擬；類推 .<br/>
 He drew an analogy between the brain and a vast computer. 他把大腦比作一台龐大的電腦。
+
+# contradictory 
+If two or more facts, pieces of advice, etc. are contradictory, they are very different from each other.
+對立的；相互矛盾的；不一致的.
