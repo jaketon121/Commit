@@ -48,3 +48,6 @@ something that is used as a pattern for producing other similar things 樣板，
 
 # represent
 to express or complain about something, to a person in authority 提出；表達；向…抗議 
+
+# backlog
+a large number of things that you should have done before and must do now 積壓的工作 I've got a huge backlog of work to do. 我有大量積壓的工作要做。 
