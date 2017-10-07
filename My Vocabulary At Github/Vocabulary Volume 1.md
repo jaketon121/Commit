@@ -22,3 +22,6 @@ He drew an analogy between the brain and a vast computer. 他把大腦比作一�
 # contradictory 
 If two or more facts, pieces of advice, etc. are contradictory, they are very different from each other.
 對立的；相互矛盾的；不一致的.
+
+# hummingbird
+a very small, brightly coloured bird with a long, thin beak, whose wings move very fast and make a humming noise 蜂鳥
