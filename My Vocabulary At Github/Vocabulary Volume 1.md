@@ -1,6 +1,7 @@
 # Dictionary
 http://dictionary.cambridge.org/ <br/>
 http://www.dictionary.com/
+Urabn Dictionary <br/>http://www.urbandictionary.com/ 
 
 # divergent
 Mean : pertaining to or causing divergence . 发散的 .
