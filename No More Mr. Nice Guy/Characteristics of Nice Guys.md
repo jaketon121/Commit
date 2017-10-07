@@ -4,7 +4,8 @@
 Nice Guys are dishonest. These men hide their mistakes, avoid conflict, say what they think people want to hear, and repress their feelings. These traits make Nice Guys fundamentally dishonest. Nice Guys are secretive. 
   Because they are so driven to seek approval, Nice Guys will hide anything that they believe might upset anyone.  
   The Nice Guy motto is, "If at first you don't succeed, hide the evidence."
-  ---<br/>
+ <br/>
+  ---------------------
   Nice Guys are full of rage. Though Nice Guys frequently deny ever getting angry,   
   a lifetime of frustration and resentment creates a pressure cooker of repressed rage deep inside these men.  
   This rage tends to erupt at some of the most unexpected and seemingly inappropriate times.
