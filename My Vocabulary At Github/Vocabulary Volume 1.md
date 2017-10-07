@@ -1,6 +1,6 @@
 # Dictionary
 http://dictionary.cambridge.org/ <br/>
-http://www.dictionary.com/
+http://www.dictionary.com/<br/>
 Urabn Dictionary <br/>http://www.urbandictionary.com/ 
 
 # divergent
