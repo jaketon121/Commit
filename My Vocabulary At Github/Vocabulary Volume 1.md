@@ -26,3 +26,11 @@ If two or more facts, pieces of advice, etc. are contradictory, they are very di
 
 # hummingbird
 a very small, brightly coloured bird with a long, thin beak, whose wings move very fast and make a humming noise 蜂鳥
+
+# cram
+to try to learn a lot very quickly before an exam （考試前）死記硬背，突擊學習   
+<br/>She's cramming for her history exam. 為應付歷史考試她拼命突擊。
+to do many things in a short period of time 急匆匆地做（許多事） <br/>
+I had to cram three countries into a week's business trip. 我出差一周跑了三個國家。
+to force a lot of things into a small space 塞滿；塞進；擠入 <br/>
+Eight children were crammed into the back of the car. 八個孩子被塞進了汽車的後座。
