@@ -1,3 +1,5 @@
+  # No More Mr. Nice Guy Kindle Edition
+by Robert Glover (Author)
 
 # Characteristics of Nice Guys
 
