@@ -4,7 +4,7 @@
 https://www.thriveyard.com/39-ways-to-increase-your-productivity-at-work/
 
 
-# 39 Ways t# Increase Your Productivity at Work
+# 39 Ways to Increase Your Productivity at Work
 
 By Duncan Muguku
 This in-depth article discusses how to be more productive in the workplace. Productivity at work entails being the best that you can be at what you do, being methodical, being systematic, being well prepared, being organized, prioritizing, working smarter and doing what needs to be done in a timely manner.
