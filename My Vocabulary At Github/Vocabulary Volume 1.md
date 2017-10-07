@@ -14,3 +14,7 @@ Mean : to push away or refuse something or someone unwanted, especially to succe
 # Integrated 
 to combine two or more things in order to become more effective 使合併，使成為一體 .
 to mix with and join society or a group of people, often changing to suit their way of life, habits, and customs （使）融入（某社會或群體）；（使）成為一體.
+
+# analogy
+a comparison between things that have similar features, often used to help explain a principle or idea 類似；類比；比擬；類推 .<br/>
+He drew an analogy between the brain and a vast computer. 他把大腦比作一台龐大的電腦。
