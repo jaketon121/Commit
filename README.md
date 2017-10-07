@@ -1,4 +1,6 @@
 
+
+
 # Daily mail task 
 1 15min 新闻 ：<p>http://www.dailymail.co.uk/home/index.html</p>
               <p>https://www.btime.com/</p>
@@ -137,3 +139,86 @@ food, as hamburgers, pizza, or fried chicken, that is prepared in quantity by a 
 
 # Music 
 <p>网易云音乐<br/> http://music.163.com/ </p>
+
+
+# 乱七八糟导航哈
+
+
+【Nuka World Radio】
+https://www.buzzfeed.com/
+
+【英语角】
+https://www.ego4u.com/
+http://www.audioenglish.org/
+【棋谱收藏站】
+http://game.onegreen.net/Index.html
+
+
+禁区之门： 
+http://www.bxwx9.org/b/3/3222/
+苦苓书房： http://www.my285.com/gt/kuling/klsf/index.htm
+flylady
+http://www.flylady.net/d/getting-started/ 
+
+
+Sometimes you need to drift until you come to a complete stop so you can gather yourself. We’re going to drift, and then we’re going to stop.
+
+http://whisper.sh/  
+http://www.funnyjunk.com/ 
+https://www.pinterest.com/
+http://wapjingyan.agri35.com/ 
+http://www.kanunu8.com/ （努努书坊）
+一个人 需要隐藏多少秘密 才能巧妙地 度过一生 这佛光闪闪的高原 三步两步便是天堂 却仍有那么多人 因心事过重 而走不动 －－仓央嘉措
+
+Our emotional suffering is caused by our desire for things to be other than they are. The more we resist the fact of what is happening right now, the more we suffer.
+— 	Kristin Neff
+
+You don’t need more details or more knowledge to develop your personal philosophy. You need to start implementing what you’ve learned or just refreshed in your mind.
+
+three second rule
+The rule that says if you drop a piece of food on the floor it is ok to eat if you pick it up in three seconds. Usually the 'three seconds' is more like 10 but it is still the three second rule.
+*accidentlly drops a chip* 
+"Three second rule!!" 
+*eats chip*
+
+Jelly Back
+A weak person that always gets stepped on. All talk and no action. A non-vocal vocalist. Someone who will recieve a Dirty sanchez willingly and then complain to their peers about it later. Spineless fuck,supreme follower with alot of mouth. Coward of the highest order.
+"Tom is such a jelly back at work." He always bitches about the job but never stands up for what he whines about! 
+That's why he oftens gets a dirty brooke}.
+
+
+
+awaken 
+FML: Your everyday life stories
+http://www.fmylife.com/
+Your Weight Loss Website!
+http://www.trimmedandtoned.com/ 
+dumblittleman tips for life
+http://www.dumblittleman.com/
+Teal Swan: The Spiritual Catalyst
+tealswan.com/
+lifestyle media 
+http://www.mindbodygreen.com/
+Mentor to People Who Are Changing the World
+http://christinekane.com/
+Personal Excellence Blog  :Self-awareness is the first step toward living a conscious life. 
+
+http://personalexcellence.co/articles/
+---------------
+“How many times must I remind you that you must make sure to state your goals in a way that emphasizes what you want to happen, not what you want to avoid. This ‘Don’t lose in the early rounds’ is not a goal at all, it’s fearful.”
+--------------------------------------
+Sticking to the old ways of doing things no longer works. Pick up any issue of a high-tech magazine and you’ll get the message instantly. Research and development are making yesterday’s products and methods outmoded before sunset. Just as we adapt to new discoveries, it is vital that we apply the same flexibility when dealing with people and procedures. Learn to bend quickly and adapt with speed.
+
+（如何整理自己的人生）
+The Get Yourself Organized Project- 21 Steps to Less Mess and Stress[Team Nanban]tmrg
+http://pan.baidu.com/s/1bnHYyR1
+
+（如何打破心理障碍）
+心理定向与成功
+http://pan.baidu.com/s/1dEaWCRB
+
+
+
+
+
+
