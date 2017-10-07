@@ -46,3 +46,5 @@ to guess or calculate the cost, size, value, etc. of something 估計；估算�
 # template
 something that is used as a pattern for producing other similar things 樣板，範本 
 
+# represent
+to express or complain about something, to a person in authority 提出；表達；向…抗議 
