@@ -1,5 +1,10 @@
 
 
+# 这个Project算是杂合的吧，因为这是我第一个做的项目。 也算是做一个杂合的博客了。
+
+# 魔术
+
+我爱喝啤酒
 
 # Daily mail task 
 1 15min 新闻 ：<p>http://www.dailymail.co.uk/home/index.html</p>
