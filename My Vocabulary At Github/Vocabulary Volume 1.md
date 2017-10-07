@@ -54,3 +54,7 @@ a large number of things that you should have done before and must do now 積壓
 
 # impostor
 a person who pretends to be someone else in order to deceive others 冒名頂替者 He felt like an impostor among all those intelligent people, as if he had no right to be there. 他感覺自己在所有那些聰明人中間像個冒牌貨——好像自己無權留在那裡。
+
+# hilarious 
+extremely funny and causing a lot of laughter 非常滑稽的，引人發笑的 He didn't like the film at all - I thought it was hilarious. 他根本就不喜歡這部電影——但我覺得它好笑極了。
+
