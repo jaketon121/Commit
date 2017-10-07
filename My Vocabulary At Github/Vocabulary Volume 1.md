@@ -51,3 +51,6 @@ to express or complain about something, to a person in authority 提出；表達
 
 # backlog
 a large number of things that you should have done before and must do now 積壓的工作 I've got a huge backlog of work to do. 我有大量積壓的工作要做。 
+
+# impostor
+a person who pretends to be someone else in order to deceive others 冒名頂替者 He felt like an impostor among all those intelligent people, as if he had no right to be there. 他感覺自己在所有那些聰明人中間像個冒牌貨——好像自己無權留在那裡。
