@@ -14,3 +14,5 @@ Nice Guys are dishonest. These men hide their mistakes, avoid conflict, say what
   Nice Guys tend to express their frustration and resentment in indirect, roundabout, and not so nice ways.   
   This includes being unavailable, forgetting, being late, not following through, not being able to get an erection,   
   climaxing too quickly, and repeating the same annoying behaviors even when they have promised to never do them again.
+<br/>
+  ---------------------
