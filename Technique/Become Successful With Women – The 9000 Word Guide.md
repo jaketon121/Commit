@@ -1,0 +1,495 @@
+
+I. Intro
+What Should be My Goal With Women?
+Can You Get Every Woman You Want?
+Which Women Do You Attract?
+How Long Does It Take Until You Can Date the Women You Want?
+II. Basics of Becoming an Attractive Man
+Lifestyle
+Mindset
+Waiting Until You Feel ‘Ready’
+Rejection
+Get Rid of All Disqualifiers
+What Qualities Make a Man Attractive?
+III. The Step By Step Process To Choice With Women
+The Best Ways To Meet Women Naturally
+Starting and Maintaining a Conversation
+Asking Her Out
+The Date
+I. INTRO
+This is a super simple guide that covers everything you need to know to improve your attractiveness, meet interesting women, and date them successfully. It’s designed to get you results as fast and easy as possible. If you’re only going to read one thing on Love Life Solved, read this.
+After most sections, you can find additional resources so you can learn more about the topic. We also recommend that you download our free ebook Desirable Man Blueprint to get a deeper understanding of many things we talk about here.
+Have fun reading!
+WHAT SHOULD BE MY GOAL WITH WOMEN?
+This guide is not about getting laid or finding a girlfriend. It aims to turn you into a man who has choice with women.
+What does having choice mean?
+It means that you can find, talk to, and attract exceptional women anytime you want.
+After you have developed choice you can decide if you want just sex, date multiple women, enter a committed relationship, or choose whatever else you want. But first, it’s essential to develop yourself into a desirable man who attracts a large number of women.
+Why having choice with women is the best thing ever:
+No more waiting until she texts back.
+No more staying in a bad relationship because of desperation.
+No more settling for someone who’s just “ok”.
+No more dealing with drama and manipulative games.
+No more neediness.
+No more dry spells.
+Take responsibility for your love life now! Improve yourself to a point where you can choose a great partner for you, as opposed to relying on luck, faith, or the law of attraction to find her.
+
+CAN YOU GET EVERY WOMAN YOU WANT?
+I’ll explain with an analogy.
+Imagine a pop singer like Justin Bieber. The Bieber is a hugely successful guy with a large fanbase all over the world. But does that mean every single person out there loves Justin Bieber’s music? Hell, no!
+
+The kind of music you play (who you are) determines who your fans will be.
+While he is popular with tens of millions of people, there will always be many others who’d rather listen to Muse, or Mumford and Sons, or Slayer, or Rammstein, or KSHMR.
+The same exact principle is true in dating as well.
+People come in all forms, sizes, and shapes and with just as many different characters and biases. You will always be attractive to certain people and neutral or even unattractive to others.
+Think of the people who find you attractive as your audience. And your audience can change over time. Taylor Swift started out as a country singer, but she soon discovered that pop is, well, more popular. Just like our girl Taylor, you too can change a few things and soon become appealing to a larger and more desirable audience.
+venn-diagramm-your-audience
+By improving yourself you become attractive to more women. Also, the more success you have the pickier you’ll get.
+You have to be careful of one thing, however; try to appeal to everyone and you’ll end up appealing to no one. Just like a metal band can’t appeal to metal fans as well as classical music enthusiasts alike, you can’t appeal to every woman out there. Know who you are, know what you want, pick your niche accordingly and own it. That’s how you become successful with women.
+WHICH WOMEN DO YOU ATTRACT?
+You surely know the saying “opposites attract.” I hate to tell you, but it’s a myth. Generally, people gravitate towards similarity.
+successful_with_women_guide_similarityMost people date others with similar education, interests, social and ethnic background, age, food preferences, taste in humor, libido, the number of kids they want…
+E.g., if you value hygiene a lot, it’s likely that you will only find women attractive who take great care of their body. A germophobe and a girl who loves to mud wrestle probably won’t make a great fit.
+As a general rule, it’s fair to say that who you are is who you attract.
+Who you are is who you attract.
+CLICK TO TWEET
+Now the question is, who do you attract right now? Is it the women you want? If not, your objective is simple: improve yourself until the women you want, want you. We’ll help you improve in the right areas so you don’t have to trial and error around until you find out what works.
+Read more…
+Are You Good Enough For Her?
+HOW LONG DOES IT TAKE UNTIL YOU CAN DATE THE WOMEN YOU WANT?
+It depends on how much effort you invest, where you are starting from, and whether or not you have other people who can teach you.
+Usually, it’s a matter of a few months until you see significant changes.
+I know this doesn’t exactly sound exciting, after all, every one of us wants results now.
+That’s why many guys quit before they even had a chance of success. Then they try one product after another hoping to find something that will give them results without having to do all the uncomfortable stuff like overcoming fears, losing weight, meeting new people, and so on.
+There is no magic pill that will make you great with women!
+There is no magic pill that will make you great with women!
+There is only one problem with this: it doesn’t work.
+By rushing the process you’ll just hop from one alleged quick fix to the next, always thinking that this new product is the magical pill that will somehow vaporize your anxiety and make you fantastic with women.
+To help you avoid these expensive and ultimately useless or even harmful products, we’ve listed some signs a product might be illegitimate, below:
+Videos of other guys approaching women and giving you the complete “system” they used
+The Secret, law of attraction, and everything related to it
+Every product that claims to get you laid within x amount of hours
+Canned lines
+Every system that claims to work on every woman
+Every product that promises you the “secret formula” to success with women
+Products that promise you to become great with women from the comfort of your home
+There are many more indicators but listing them would make this guide way too long. Go by this common saying: If something seems too good to be true, it probably is.
+II. BASICS OF BECOMING AN ATTRACTIVE MAN
+Now, it’s time to look into what exactly can make a man more attractive to a large number of high-quality women.
+LIFESTYLE
+Every single one of us has something in common: we only have 24 hours per day. And how we spend those hours determines everything in our lives.
+Spend a good junk of the 24 hours doing fitness and you’ll be fit.
+Spend it on studying and you’ll be an academic soon.
+Spend your days playing the guitar and you’ll become skilled at playing the guitar.
+Spend your time doing things that make you an interesting and attractive man and you’ll become an interesting and attractive man. (read on to find out what those things are)
+lifestyle-love-life-solved-logo
+You shouldn’t pick a lifestyle for the sake of appealing to women. I can’t stress this enough; pick activities and a lifestyle that are fun to you. E.g., if you enjoy playing video games every now and then, that’s perfectly alright. (just don’t let it get out of hand) Sure, most women aren’t big into playing these games, but giving them up just so you become more interesting to women achieves the opposite.
+By giving up the things you love for someone else you sacrifice your identity.
+I see so many men who go out a lot just because it’s the cool thing to do or because they expect to meet a lot of sexy women there. By living a life that you don’t enjoy you repel women more than a skunk with bad breath.
+Another critical aspect of your lifestyle is the relationships you have with your friends and family.
+All the time, guys ask me, “Julian, you tell me I should build a circle of friends before I think about women, but I want a girlfriend now!”
+How can anyone expect to date someone who is emotionally healthy and fun to be around when they can’t even maintain a single friendship?
+If you meet a woman and she finds out you have no friends, it’s a huge red flag! “Something must be wrong with that guy, he doesn’t even have friends. Maybe he is an axe murderer or something.”
+Your life should be enjoyable and filled with friends, family, hobbies, job/school, time to relax, learning new things,… This will not only show that you have a life worth being a part of, it will also keep you from excessive neediness and clinging to your partner.
+Build a great lifestyle and many of the dating problems you have now will disappear.
+Read more about the importance of lifestyle…
+How to Build a Social Circle From Scratch
+Why Spending Time Alone Will Make You Attractive
+Launch Your Social Life Using the Butterfly Effect
+Stay In Close Touch With Hundreds Of People
+Free ebook Desirable Man Blueprint
+MINDSET
+By far the most important asset you can have for success with women is a strong mindset. Why? Because your mindset is the mental attitude that predetermines how you react to the ladies.
+To understand the concept, just imagine two identical guys. One believes he is blessed with beauty, the other one sees a monster when he looks in the mirror. Is one of them more attractive or is there no difference?
+The man who believes he is good-looking is actually better looking because he holds a more positive attitude about himself and he exudes confidence.
+You surely know this famous quote:
+“He who says he can and he who says he can’t are both usually right”
+– Confucius
+So I think we all agree that the correct mindset is essential to success with women. But what is the correct mindset? Of course, there are many different, correct mindsets but you can’t go wrong with the one below:
+The correct mindset: “She seems cool. I want to find out more about her and see if we are a good fit for each other.”
+Wrong mindsets… (some of them)
+Agenda – “I’m gonna play nice and friendly so I can get her into bed later.”
+Putting her on a pedestal – “I’d be the luckiest man if she just let me be with her.”
+Needy – “Oh my god, she is so damn hot! How can I convince her to hang out with me?”
+Misogynistic – “I’ll crack that bitch!”
+Entitled – “I worked so much on myself. I deserve to be with her!”
+Nice Guy – “She’ll like me once she gets to know me.”
+Before we move on to a hugely important subsection of your mindset, here is an inspirational story that I figured you might like:
+The Elephant Rope
+As my friend was passing the elephants, he suddenly stopped, confused by the fact that these huge creatures were being held by only a small rope tied to their front leg. No chains, no cages. It was obvious that the elephants could, at anytime, break away from the ropes they were tied to but for some reason, they did not. My friend saw a trainer nearby and asked why these beautiful, magnificent animals just stood there and made no attempt to get away.elephant
+“Well,” he said, “when they are very young and much smaller we use the same size of rope to tie them and, at that age, it’s enough to hold them. As they grow up, they are conditioned to believe they cannot break away. They believe the rope can still hold them, so they never try to break free.” My friend was amazed. These animals could at any time break free from their bonds but because they believed they couldn’t, they were stuck right where they were.
+Like the elephants, how many of us go through life hanging onto a belief that we cannot do something, simply because we failed at it once before?
+How many of us are being held back by old, outdated beliefs that no longer serve us? How many of us have avoided trying something new because of a limiting belief? Worse, how many of us are being held back by someone else’s limiting beliefs?
+– Unknown Author
+Performing for Women
+Men who struggle to attract women usually share one commonality: they perform some sort of act in order to be liked.
+Here are some common performances…
+Putting other guys down verbally or physically to show dominance
+Buying stuff (clothes/jewelry/car/house/boat) to impress her
+Treating her extra nice
+Competing with other guys for her attention and affection
+Dressing your best when she’s around but like a slob when she’s not
+Learning new skills to impress her
+Being deliberately mean or cocky to her
+Bragging so she’ll see how great you are
+Making her compliments that you think she wants to hear
+Behaving like some cool alpha guy from T.V
+Not texting her back just to make her wait
+…
+Everything you do solely because you think women will like it achieves the opposite effect: women will be repelled by it.
+So before you do anything else, ask yourself: “How do I perform for women?” Write it down and get rid of those behaviors one by one. Doing just this exercise alone will make a huge difference in your love life!
+Be careful! Don’t get rid of all performance behaviors just so women will like you more. That would be just another performance. :) Become a great guy because you want to become a great guy in every aspect of your life, not because you think women will dig it.
+Learn more about good/bad mindsets and how you can change them…
+How to Build Attractive Beliefs
+Summary of Mindset Changes
+You Need to Stop Selling Yourself to Women
+Change Your Mind About Dating
+WAITING UNTIL YOU FEEL READY
+Whenever we feel anxiety we have the natural tendency to cling to our comfort zone. In dating, this means studying theory as opposed to talking to women in the real world. It means staying home until that giant pimple on your forehead has disappeared. It means hiding your affection as opposed to showing it openly because you don’t want to ruin your chances until you are a master seducer.
+
+The plane took off, but my balls were not on board.
+Years ago, I flew from New York to Düsseldorf, Germany. I got really lucky because the person next to me on that flight was a beautiful young woman who returned home after a year abroad.
+We had a lot of fun and even more Vodka Red Bulls. She also introduced me to a friend who sat a few rows in front of us. A friend so beautiful that I think my heart literally skipped a beat upon seeing her.
+Anyway, at this point, I had been traveling for 20 hours straight without a shower or brushing my teeth. As you can imagine, I felt dirty, but not the good dirty. In my imagination, I smelled.
+The fact that I had two incredible beauties practically fight over me in an airplane didn’t matter. Not even that they wanted me to come to Berlin with them spontaneously.
+Long story short, I felt so uncomfortable that I didn’t do anything about it. We landed, they said goodbye, and I didn’t see Berlin with them. What could have been…
+Be smarter than I was and fucking go for it no matter if the situation is perfect or not! Perfect romance like you see in the movies doesn’t exist. There will always be a stinky sock, a messy apartment, or an ingrown toenail. Accept it and take action despite it!
+REJECTION
+When I was in my teens I was convinced that I sucked with women. All my friends had girlfriends and they had already made first experiences with kissing and sexuality. I seemed to be the only guy who had never kissed or dated a girl before.
+But then I looked closer at my behavior. I avoided contact with beautiful women like the plague. Sure, I tried to be near them, but I never talked to them, let alone asked them out. Not once! On the plus side, at age 18 I had never been rejected. But on the downside, I was miserable, lonely, and convinced something was seriously wrong with me.
+Learn from my anxiety driven stupidity: you can’t succeed without trying. If you don’t get rejected regularly, you don’t give yourself a chance to succeed.
+By the way, every guy gets rejected. A friend of mine works as a pit crew assistant for a big Formula 1 team. She told me that a famous driver approached her at a party after a race and asked her out. She rejected him immediately because he seemed like too much of a player to her.
+Women… you can’t help but love them! :D
+rejection
+Believe me when I tell you that no amount of money, fame, or good looks can save you from rejection. You could do everything right and still get rejected. Often, it doesn’t even have to do with you.
+She could have just broken up with her ex, or she feels sick, or she is there with her friend and she doesn’t want to leave her, or she is on her period and feels uncomfortable, or she has a fetish for guys who look like the opposite of you, or you subconsciously remind her of her brother,…
+You see, rejection isn’t personal. It hurts like a motherfucker in any case, but it doesn’t necessarily have to have anything to do with you.
+Learn more about rejection…
+Why Women Reject You And What To Do About It
+How to Remain Dignified While Being Rejected
+Why Rejection Hurts So Much And What To Do About It
+How to Stop Being Devastated By Rejection
+Overcoming our Irrational and Sometimes Crippling Fear of Rejection – Podcast
+GET RID OF ALL DISQUALIFIERS
+Before we talk about what can make you more attractive, we should talk about what completely disqualifies you as a potential mate. Just like in any other field, it’s much easier to screw up than it is to do everything right. Thus, it is essential to get rid of all disqualifiers before doing anything else.
+disqualifiers-women
+Poor Hygiene
+No one likes to hang out with a guy who reeks of old sweat. Bodily hygiene should be a given for every man out there. Sadly, my experience in sports, and therefore with guys in locker rooms, tells me otherwise.
+I’ve seen it all; guys thinking it’s sufficient to just spray deodorant over their stinky bodies, guys not showering after sweating for two hours and directly slipping into their street clothes, guys who use the same pair of socks for a week or more,… Short, many men are disgusting. Don’t be one of them!
+A few helpful resources…
+The One Guide On Grooming And Hygiene Every Guy Needs
+Hygiene and Looks Checklist To Download For Free
+Social Incompetence
+This is the area that most men struggle with. Being able to just start and lead a normal conversation with a new person, especially if that person is an attractive woman, can be challenging. All too often, doubts, stress, or anxiety lead to a blank mind and the resulting awkward silence.
+A man who can just talk and empathize normally with beautiful women is rare. So if you become that man, you’ll stand out like a flamingo among crows.talking-attractive-woman
+Even if you have fantastic social skills already, you can still lose them if you never practice them. So if you don’t get out much and don’t talk a lot with people your social skills will degrade. I notice this all the time when I have a phase where I work on a product for a few months without getting out much. I run out of words more easily, get too much into my head, have a hard time listening, I’m not as quick with my jokes,…
+Thus, make sure you keep your social skills sharp by always practicing them.
+Check out these resources to improve your social skills…
+15 Glaring Signs Of Social Incompetence You Want To Avoid
+The Little Known Technique Actors Use To Keep Conversations Going
+12 Action Oriented Tips That Will Instantly Raise Your Social Skills
+Why People Don’t Open Up To You
+Here’s Why Your Stories Are Boring (And How To Make Them Captivating)
+How to Start a Conversation With Nothing to Say
+How To Stop Being Boring: The “F#ck It” Philosophy
+Arrogance
+One of the ways to deal with anxiety is by acting like you are the shit. I see so many guys behave as if they are rock stars, even though they work a cubicle job and spend most nights alone at home with their six cats. If that’s you, don’t kid yourself, women see through your masquerade!
+Any time you act like someone that you are not–to make yourself appear better, or cooler, or more successful – you ruin any chance of being with a high-quality woman. What’s even worse, you destroy your self-esteem.
+Avoid all the macho shit guys do to impress girls and you’ll be far more successful with high-quality women.
+Note: Of course you can be arrogant and still get laid a lot. But you better brace yourself for a never-ending series of drama, lies, and games because the women who fall for arrogant guys tend not to be the most emotionally stable ones. ;)
+A little poem to help you internalize a good mindset free of arrogance…
+As long as you try
+to impress others,
+you are not convinced
+of your own strength.
+As long as you strive
+to be better than others,
+you are doubting your
+own worth.
+As long as you try
+to elevate yourself
+by lowering others,
+you are doubting your
+own greatness.
+Who is in peace with oneself
+doesn’t have to prove anything
+to others.
+Who knows one’s own worth
+doesn’t need validation.
+Who knows about one’s own greatness
+lets others keep theirs.
+-Gabriele Ebbighausen
+Insecurity
+Lastly, insecurities can destroy any other attractive qualities you have. Low self-esteem or an anxiety like shyness can alter your behavior in really unattractive ways.
+Working on overcoming these mental roadblocks is critical to success with women.
+I’ve struggled with extreme shyness since I can remember. Facing your fears and working on overcoming them is challenging. However, if you can lower your anxiety you will not only see your success rate with women go up, but you’ll feel much more confident in general. It’s like a whole new world opens up to you.
+The best way to counter anxiety is by using techniques borrowed from Cognitive Behavioral Therapy (CBT). One of these techniques is called Systematic Desensitization. I and many others deem it the most effective technique to overcome social phobia and anxiety in general. Here is how it works, in the words of my friend Howie Reith:
+Gradually expose yourself to the thing you are afraid of – first in small doses and controlled environmentshow-to-overcome-anxiety
+Increase the potency over time until the thing you’re afraid of no longer bothers you
+One tiny step after another is key.
+How to break free of insecurity and anxiety…
+Overcome Shyness By Manipulating Yourself
+3 Words To Instantly Get Rid Of Anxiety
+How to Overcome Anxiety in Critical Moments
+The Elephant In Your Head: How To Snap Out Of An Anxious Mood
+WHAT QUALITIES MAKE A MAN ATTRACTIVE?
+Every woman is different, and there are hundreds of traits that women can find attractive about you, however, the following qualities are pretty much universally seen as really hot, so it makes sense to take a closer look at them.
+qualities-attractive-women
+Confidence
+Self-confidence, the holy grail of attractiveness. Everyone wants to have it, yet few guys are truly confident. True confidence is not a matter of external success. (although stuff like money, looks, or fame can make you appear confident)
+What you need to know about confidence:
+Confidence is situational and heavily influenced by competence. You can be really confident at Java programming, yet completely insecure when it comes to talking to women in a bar. The more competent you feel at something the more confident you’ll appear. This is the reason why musicians look so fucking confident. Every time you see them they are in their element, the arena where they feel completely comfortable and confident.musicians-confident
+What do we learn from all this?
+If you want to become confident in an area all you need to do is gather experience and raise your skill. In the dating area that means talking to a large number of women, getting rejected, having wild sex with hot women, and everything in between.
+Another knob you can turn (although it’s much slower) is raising your self-esteem. I’ll explain how self-esteem is connected to confidence by quoting the guys from the XXFitness Subreddit:
+We get a lot of posts on /r/xxfitness saying “I finally have my dream body and I still hate how I look”, or “If only I could lose these 10lb, I would feel good about myself”.
+That’s a fundamentally wrong expectation: if only I had the perfect body, I’d love myself. But it’s not the weight that’s the problem, it’s your self-worth and self-confidence. Self-esteem doesn’t magically appear once you hit the right weight, it’s something you have to work on as much and as hard as you work on your body in the gym.
+Do you think you suffer from low self-esteem? Here is a link to the Sorensen Self-Esteem Test so you can find out: Sorensen Self-Esteem Test
+So what can you do to improve your self-esteem?
+Self-esteem is defined as “confidence in one’s own worth or abilities”.
+But who defines how much you are worth? Well, you do. And based on what do you evaluate yourself? If you are like most people, you do it based on net worth, status symbols, and appraisal of strangers.
+But if you want to develop strong self-esteem you need a point of reference that is completely under your control and not subject to outside opinion or external success.
+My point of reference, e.g., is me being a good person. For me, personally, this means (the rough version):
+Don’t harm others
+Be a good friend
+Treat others with respect
+Don’t judge
+Always speak the truth
+As long as I am certain that I’m a good person, the rest of the world can blow me. This belief is a huge source of self-esteem and subsequently, leads to confidence!
+Another technique that works well is writing down two things you have achieved and two things you are grateful for every day. This will give you a sense of being a valuable person as well and will shift your focus towards all the good things that happen to you every day.
+More about how to build confidence and self-esteem…
+How to Develop Bulletproof Confidence – The Ultimate Guide
+How Can I Be More Confident Around Attractive Women?
+The Confidence Conundrum
+Looks
+I know many of you want me to tell you that looks don’t matter, but that would be a lie. Looks are important. Just not as important as you think. (and definitely not for the reasons that you think)
+Here is why looks matter:
+They make it much easier to get positive signals from women before talking to them (girls checking you out, smiling at you, positioning themselves next to you,…)
+Good looks give others the impression that you must also be smart and interesting
+Your exterior tells a story about you. Walk around a busy street today and look at all the people. Try to guess their job and their story. You’ll see, one can tell a lot from just looking at someone.
+In an evolutionary context, a good looking man is a fitter, healthier man and therefore more likely to produce healthy offspring.
+And here is why looks don’t matter:
+What women think is a good looking guy can seem completely random. What’s hot to one girl can be a huge turnoff to another.
+Looks only get you so far. No matter how you look, it will never make up for a boring personality. Looks_Do_Matter
+Let’s hope this guy has more than just his looks going for him.
+Once a woman finds you emotionally attractive she will also find you physically attractive – even if she has to become creative to find an attractive feature. A woman once told me: “My boyfriend is so hot, just look at his profile. (side-face) It’s so manly.” Err, ok, whatever floats your boat…
+For most women, details count more than the whole picture. Dirty shoes can be a bigger turnoff than a few inches that you lack in height.
+So what does all of this mean for you?
+It means that you should take good care of your body so you are always well kept and as healthy as possible. Also, wear clothes that fit your body shape and your style. That’s all you need to do. More investment into looks is just an added bonus, but not at all necessary for success with beautiful women.
+So in case you were planning on training for six pack abs and a huge chest, do it if you like, but it won’t make you better with women. The same holds true for buying expensive clothing, getting tattoos or piercings, crazy expensive haircuts… Trust me, I’ve tried.
+Want a free checklist that will show you what it means to be a well-kept man? Just click here to download the pdf.
+Always dress as if you met the woman of your dreams today.
+CLICK TO TWEET
+Read more about looks…
+Do Looks Matter To Women?
+Looks Matter, But Not The Way You Think
+What It Takes to Be an Attractive Man
+Social Status
+When your social status is high you get respect (and women) automatically. But what is social status?
+Here is the Wikipedia definition: “Social status is a person’s standing or importance in relation to other people within a society.”
+Here are a few more practical examples:
+The CEO of a company has high social status in the company. The intern very little.
+The DJ has high social status in a nightclub whereas a normal visitor has low social status.
+At the university, the professor has high social status but a student has little.
+If you want to multiply your attractiveness immediately, make sure you meet women in places where your social status is high.
+In case you feel like your social status is low everywhere, you can easily boost it by hanging out with people who already have high social status.
+Vulnerability
+Vulnerability in dating is a fairly new concept that was brought to life by popular author Mark Manson in his fantastic book Models: Attract Women Through Honesty (affiliate link). By the way, Models is a must read!
+Here is how he explains vulnerability:
+Chances are, if you’re reading this and are bad with women, then you’re bad with women because you don’t express your true feelings and intentions very well at all.
+Perhaps you’re afraid to approach women you find attractive, or ask them out on a date. Perhaps you consistently fall into boring conversation topics because they’re “safe” and shallow and you don’t have to risk offending or inciting anyone with them.
+Perhaps you’re stuck in a job or lifestyle you don’t truly enjoy, but because other people always told you that it was a good idea and you didn’t want to upset or disappoint others.
+Perhaps you haven’t exercised or groomed yourself to the extent that you could because you didn’t want to stand out too much. Dressing extremely well makes you feel uncomfortable, smiling at strangers makes you feel creepy, and the idea of hitting on a woman openly scares you because of the possible rejection.
+All of these are symptoms of a root problem: an inability to make yourself vulnerable.
+In a time and age where everyone posts only their best moments on social media, it can seem like you have to be perfect at all times in order to compete with the other ripped, tanned guys who seem to do little besides skydiving, surfing, and traveling to exotic places.
+All of this is merely an illusion, though. Perfection doesn’t exist. Everyone’s just cooking with water. The sooner you expose yourself emotionally and show your imperfections to others without shame, the sooner you’ll see them open up to you and reveal their not so perfect side as well.
+Explore vulnerability more in-depth…
+What Changed When I Learned How To Be Vulnerable
+Vulnerability Without Weakness – Mark Manson’s Concept In Action
+Power In Vulnerability
+Models: Attract Women Through Honesty (affiliate link)
+Honesty
+Honesty can be viewed as a form of vulnerability, but it’s such an important concept that I had to give it its own heading.
+Why is honesty attractive?
+Shows vulnerability and confidence. It takes guts to speak the truth
+You often get what you want much faster by just telling it straight out than by hinting at it
+Honesty makes it impossible to end up in the friend zone.
+Unfortunately, these days too many men think that dishonesty will present them in a better light. So they agree with her at all times, make dishonest compliments, lie about their job,…
+No matter what situation you are in right now, it’s much better to tell her straight up: “I don’t have a job right now and I still live with my mom, which drives me crazy. I know you are supposed to have your life figured out by the time you turn 30, but I never wanted to settle for the life my parents wanted for me. So I’m still searching for the right path, I guess.”
+An answer like this is likely to be met with compassion and respect for your confidence to tell an uncomfortable truth. Furthermore, it shows that you aren’t afraid of ‘losing’ her and therefore must have other romantic options.
+There is only one downside to honesty: you can overdo it. I’ll give you a couple of examples:
+Good examples:
+“This dress looks stunning on you” – honest and intelligent
+“I get so insecure around you” – cute
+Whispering in her ear, “I want you so bad.” – sexy
+Bad examples:
+“I had this nasty rash for more than a month.” – too much information
+“I have been looking at all your profile pics for quite a while now.” – stalker
+“I often think of you when I masturbate.” – weirdo
+Honesty doesn’t mean drowning her in all your kinky secrets. It just means talking to her like a mature man who knows what he wants and doesn’t apologize for it.
+III. HOW TO GET TO KNOW AND DATE EXCEPTIONAL WOMEN
+In this chapter, you’ll learn a simple and practical process that will make it easy for you to meet women, ask them out, go on awesome dates, and take the romance in any direction you want.
+OVERCOMING APPROACH ANXIETY
+Before we talk about anything else we need to talk about how you can get yourself to approach – even when you are scared shitless. For me, as well as most of our clients, the following techniques work well:
+Making firm decisions
+First, you have to make a decision. Either you decide to talk to her, or you decide not to. Once you have made your decision there is no way to back out of it.
+Most people constantly make decisions. “Should I go talk to her, or rather stay safe and approach the next beautiful girl I see?” This always gives them a safety net in case things get too uncomfortable.
+But instead of micromanaging yourself, you should make a firm decision now to do whatever it takes to become successful with women. Countdown from 10 if you want, “T minus 10,9,8,7,…”
+Then, at zero, you execute no matter what. Yes, you are nervous. Yes, all your instincts tell you to go home and play the new Battlefield. However, there is no more decision to be made. You are going to talk to that girl.
+If you can get into the habit of making fewer decisions but executing the ones you make no matter what, your life will be a success story.
+Remember that you are going to die
+Would you be scared of talking to a sexy woman if you knew you’d die tomorrow? Probably not. You would go for it with all you have and make it happen.
+Approach anxiety is completely irrational. There is no way anything worse than a harsh, “I’m not interested” can happen to you, yet most men act as if they were asked to lay in a bathtub full of rattlesnakes.
+
+Here is an incredible quote from Steve Jobs explaining why reminding yourself that you are going to die is beneficial:
+“Remembering that I’ll be dead soon is the most important tool I’ve ever encountered to help me make the big choices in life.
+Almost everything–all external expectations, all pride, all fear of embarrassment or failure–these things just fall away in the face of death, leaving only what is truly important.
+Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. You are already naked. There is no reason not to follow your heart.
+No one wants to die. Even people who want to go to heaven don’t want to die to get there. And yet, death is the destination we all share. No one has ever escaped it, and that is how it should be, because death is very likely the single best invention of life. It’s life’s change agent. It clears out the old to make way for the new.”
+-Steve Jobs
+The 3-Second Rule
+One of the few rules from the PUA world that I actually like is the 3-second rule. For those of you who don’t know it, it says that you should approach a woman within three seconds of seeing her. This will ensure that you don’t have time to overthink the situation and get anxious. 1,2,3, go!
+Another variation is what I call the “Fuck it, let’s do it!” rule. Whenever you feel nervousness or anxiety immediately tell yourself “Fuck it, let’s do it!” in your head and then take action.
+Just saying “Hi”
+Probably my favorite way to get yourself to approach despite anxiety is just saying “Hi”. It’s as simple as it sounds. Many guys get nervous because they don’t know what to say after “Hi”. So I tell them to walk by, say “Hi”, smile, and if they have something to follow up with that’s great, but if not then they can just walk away.
+Usually, what happens after saying “Hi” is that you see immediately how receptive she is. And if you sense that she is open to talking to you then it’s really easy to continue.
+THE BEST WAYS TO MEET WOMEN NATURALLY
+Women are everywhere, yet, there are some ways of meeting them that make it not only easy for you to start a conversation but also increase the likelihood of the two of you being a great fit.
+The 3 best ways to meet interesting women:
+best-places-meet-women
+These ways are the best because they allow you to meet new women without having to cold-approach them. Therefore, the whole nervousness problem goes away and the getting to know each other process feels natural to you and her.
+Furthermore, when you meet someone in these situations it’s really easy to have a conversation as you already have something in common that you can talk about.
+Sure, you can also meet women on the street or in a bar, but why go through the numbers game of meeting random women and hoping that they are a great fit when you can just meet women who you know like the same things you do?
+STARTING AND MAINTAINING A CONVERSATION
+In the following, we’ll discuss how you can start a conversation when meeting women through one of the three best ways that we talked about before (friends of friends, hobbies, school/work).
+Like I mentioned before, there are many more situations you can meet women in, however, I highly recommend that you stick to mastering these first because they require the least courage, tend to produce low rejection rates, and allow you to meet the highest quality women in an environment that plays into a nice guy’s hand.
+Approaching
+When you meet an interesting woman you typically have one of two options:
+Spend time together right then and there and see where things go (instant date)
+Have a date at a later point in time (future date)
+Which of the two options you choose depends on the situation.
+E.g., when you meet someone at a private party it’s hardly a good idea to arrange a date because you can just talk and get to know each other there. It’s a different situation when the hot girl from the marketing department walks by, seemingly in a rush. Just asking her out directly is probably a better idea than trying to have a date in the office cafeteria.
+Instant Date Openers
+The best openers for an instant date are indirect, meaning that you don’t make your intentions clear right from the beginning. Here are some examples:
+At work/school: “I’ve seen you around here a couple of times. What department do you work at?”/ “Are you also in the economy and politics course?”
+Through hobbies: “You are really good! How long have you been playing volleyball?”
+Through friends of friends: “How do you know Paul?”
+Some more indirect conversation starters:
+“Hi, I’m Julian! What’s your name?”
+“What are you drinking?”
+“How do you know [insert name]?”
+“How do you enjoy this place?”
+“Excuse me, do you have a lighter?”
+“It seems like we know a lot of the same people, but I don’t think I’ve met you before.”
+I’ll give you a good example for a situation I was in where I decided to go for an instant date.
+A few years ago, I had a class at the university and this cute girl was sitting right next to me. We started talking and hit it off well, so I wanted to do something about it right there as opposed to letting everything cool off again and meeting in the future.
+It was before Christmas and outside of our building was a hut where one could buy Punch and other alcoholic drinks. So I asked her to have a Punch there after class and she agreed. At this point, it was super on and just a matter of one thing leading to the next. I love instant dates since that day. :)
+Future Date Openers
+In a situation where I know that my time (or hers) is limited, I prefer to make my intentions clear from the beginning. That way I’ll either get a yes or a no, but at least I know immediately where I stand. No chance of ending up in the friend-zone and no fake exchange of pleasantries.
+meet_new_people
+The best conversation starters for this are direct openers. The key to direct openers is honesty. A direct opener will work well whenever she can sense that it’s not just a slimy line but a sincere attempt to get to know her.
+Some examples of direct openers:
+“Hi! I’ve seen you around here a couple of times and thought you are really cute.”
+“Excuse me, I know this sounds crazy, but I just saw you walk by and I had to get to know you or else I would have beaten myself up all day. Btw, I’m Julian.”
+“Nice necklace.” *She says thanks* “I’m Julian.” *extend hand*
+“Excuse me. I saw you standing over here and I had to come introduce myself, I’m Julian.”
+How to Maintain An Interesting Conversation
+Once you have started the conversation it’s important to have something to follow up with or else the conversation is going to end faster than you can say, “It was nice meeting you.”
+maintaining-conversation
+A few great follow-ups…
+What are you up to?
+How do you know…?
+Do you often go to parties like this?
+How long have you been practicing Kickboxing?
+You look like you are from out of town. / You strike me as a…
+You don’t look like…/You don’t strike me as a…
+Who are you here with?
+As you can see, these questions/statements aren’t exactly designed to make women throw themselves at you. Their purpose is to get the ball rolling. Nothing more.
+Things are going to get interesting in the next section, where we’ll add emotion to the conversation.
+Note: A follow-up is only relevant to instant dates because like I said earlier, when you take the future date route usually one of you is in a hurry or it’s not a good situation for a prolonged talk.
+Read more…
+What to Say After You Approach Her
+How to introduce emotion
+In order to intensify the conversation, it’s essential to introduce emotion early on. If you don’t, things will get boring quickly and neither you nor she wants that.
+A great way to emotionalize your conversations is by having an emotional opinion and talking about it. Here is what that means:
+In school, and especially later in college and university, you learn to have an opinion on topics ranging from abortion to the war on drugs. But who ever taught you about emotional opinions?
+The whole process is laughably simple. Whenever she tells you about something from her life or you talk about yours, ask yourself: “How do I feel about this?”
+Let’s practice with some examples:
+She tells you about living in Sri Lanka, which she really enjoyed: “Wow, I admire you. For years, I have wanted to travel the world, but my job always kept me here. How did you manage to break away from the rat race and live abroad? I imagine it must be really scary at first.”
+You start a new job next week: “I feel excited because this job poses new opportunities to my career, but I am also nervous because I feel like I have to prove myself.”
+You just graduated from university: “I feel incredibly happy and proud but the feelings are bittersweet because I still have no idea what I want to do next.”
+She mentions briefly that for her, faithfulness is the most important factor for a healthy relationship: “I agree 100%. If you can’t trust your partner to be faithful, there isn’t much of a base to build a partnership on. My mom cheated on my dad when I was a teenager. It was devastating for me and my younger brother. So after going through this, faithfulness is doubly important for me.”
+It takes most guys a while until they are able to express their emotional opinion in the moment. So start the practice now. The sooner you are able to communicate on an emotional level, the sooner you will be able to lead interesting conversations with women and men that can easily go on for hours.
+Some more quick tips to communicate more emotionally:
+Ask “Why?” more often (be curious about her, it’s not intrusive)
+Open up first to make it easier for her to do the same
+Put yourself in her shoes. How would what she just told you about make you feel?
+Use sentences that start with “I feel…”, “I can relate…”, “How did you feel…?”
+Further reading…
+How to Talk on an Emotional Level
+How to Stop Being Boring
+ASKING HER OUT
+The best way is to come up with something you think both of you would enjoy and then invite her to go with you. You can either think of a few good dates beforehand or come up with a plan while you are chatting with her. In any case, find a common interest and invite her to go together.
+Here are a few examples of good ways to ask her out:
+“Do you have plans for Thursday already? I got two tickets for the Kings of Leon concert from my sis. Wanna go together?”
+“Recently I started this new crazy sport called Disc Golf. It’s basically like golf, but instead of putting a ball into a hole you throw a frisbee into a basket. It’s so much fun! I’m going to play again on Saturday. Wanna play together?”
+“What’s your favorite movie?” “Tough question, I think it’s Vicky, Christina, Barcelona.” “That is a great movie! I’d love to watch it again sometime.” “Well, how about I cook for us Thursday evening and we watch it together?”
+Need some inspiration? Here is a free pdf with 48 creative date ideas.
+No matter what date you choose, the most important thing is to pick one that involves actively doing something, like playing pool billiard, cooking, riding a rollercoaster, dancing, etc. That way you will not run into the dreaded “sitting across each other in silence” situation.
+What’s the best day for a first date?
+For a first date, it’s best to choose a day and a time that don’t scream “super high-pressure date”. A Thursday evening is perfect.
+Here’s why…
+Less likelihood that she has plans already
+Makes you look like you are busy on the weekend
+Different from what every other guy does
+best-day-first-date
+The days I recommend here are merely a guideline.
+E.g., if you want to go on a date that involves drinking, then it’s a better idea to choose a Friday or Saturday.
+Daylight dates on a Saturday afternoon also work extremely well.
+What if she isn’t free at your proposed time?
+Suggest another plan, but only once! (btw, always have a plan B) If she also can’t make the second date, then stop asking and tell her to reach out to you when she is free. At this point don’t expect her to ever call or text you. If she does, great, but pushing her doesn’t do any good to either of you and it certainly doesn’t raise your chances. The best thing is to keep busy with enjoying your life and meeting other women.
+THE DATE
+The result of both, an instant date, as well as a future date is the same: a date. Now is the time to stay cool and don’t get your expectations up too much. Just stay calm and focus on having fun and learning who she is and you’ll be more than fine.
+Why you have already won
+A friend, who works as a runway model, once told me, “If I agree to go on a date with a guy, it already means that I’m interested. Why else would I go on a date with him?”
+Just thought you needed to hear this. :)
+Eye Contact
+At a date, I would often get into my head and worry about making too much/little eye contact. This made me feel insecure because I didn’t want to creep my date out. To help you avoid this problem, just follow the golden rule of eye contact: Hold the eye contact when listening and break it every few seconds when talking.
+right-amount-eye-contact
+Behavior at the Date
+Just have fun and don’t think about kissing or going home with her.
+You must not forget that the purpose of a date is for both of you to find out if you are compatible.
+That’s why you should be able to answer these questions about her after the date:
+What was growing up like for her?
+What does she do for a living? In an ideal world, what would she do for a living?
+What is she passionate about?
+What was her love life like so far?
+What is most important to her in a partner/relationship?
+What are her plans for the future?
+In case you want to dig deeper, here you can download a free list with over 100 open-ended questions.
+Other than that, I highly recommend you operate under the Fuck yes or No rule. I.e., Either everything flows and things like kissing happen naturally or you straight up tell your date that you don’t think it’s going anywhere. This way you’ll still leave the door open for casual sex as she won’t be afraid you’ll fall in love with her. Also, it shows non-neediness, which is highly attractive.
+At this point, I could tell you a hundred different tips that you should consider at a date, but that would only confuse you and get you into your head. The less you think and the more you are present with your date, the better it will go.
+And always remember, if you don’t know what to say or do, just be honest. It’s so easy and so damn attractive to tell her straight up, “You make me really nervous with your looks and everything.”
+Don’t try to be cool, or strong, or interesting. Just be real with your date and she’ll automatically see all these traits in you.
+Logistics
+Don’t stay in one place for the whole evening. Always have another venue you can go to. The after-date location should either have a chilled or an uplifting vibe, depending on what you did on your date.
+Date vibe: chilled -> After-date vibe: uplifting
+Date vibe: uplifting -> After-date vibe: chilled
+E.g:
+After a book reading, you could go salsa dancing.
+After going to a theme park you could chill at the beach with a bottle of wine.
+After a concert, you could go to a place that has a great view and listen to some songs you just heard at the concert.first_date
+Important: All of us have seen countless scenes in romantic movies where the guy prepares all this romantic stuff – candles, slow music, wine, stars and full moon,… Don’t do any of that for a first date! Your goal is to see if the two of you are a great fit, not declare your undying love. There will be plenty of room for romance once you are actually dating.
+Sex on the first date
+In case the date goes great and she invites you back to her place (or you go back to yours), should you sleep with her? It depends.
+If you have feelings for her and want to see if the two of you would make a great couple then I strongly advise you to wait with the sex.
+The reason for this is that waiting builds a ton of anticipation. It shows her that you aren’t just interested in her body. Trust me, tell her that you want to wait a bit and not only will the sex be much better once you have it, but you will also earn her trust. (and she will probably want you right then and there)
+Sex is a much more intimate act for most women than it is for men. Show her that you would never push her to do anything that she isn’t 100% ready to. This is not a game to get her into bed! Seriously, be understanding and non-pushy, even if you are really horny. Waiting pays off: the better the emotional connection the better the sex.
+Read more…
+Sex on the First Date?
+What is Sex Positivity? And Why Men Should Care
+THANKS FOR READING!
+Of course, there are many other ways to meet and attract gorgeous women, but the process detailed here is one of the simplest and most effective. Become great at meeting women this way and you’ll never ever sleep alone again – except if you want to.
+If you enjoyed this extended guide please share it with your friends to help them out and spread the word!
+Take care,
+Julian
