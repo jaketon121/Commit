@@ -2,7 +2,7 @@
 http://dictionary.cambridge.org/ <br/>
 http://www.dictionary.com/<br/>
 Urabn Dictionary <br/>http://www.urbandictionary.com/ 
-
+<p>https://translate.google.cn/ </p>
 # divergent
 Mean : pertaining to or causing divergence . 发散的 .
 
@@ -39,3 +39,7 @@ Eight children were crammed into the back of the car. 八個孩子被塞進了�
 to enjoy food or an experience slowly, in order to enjoy it as much as possible 細品，享用（食物）<br/>
 It was the first chocolate he'd tasted for over a year, so he savoured every mouthful. 這是他一年多來吃到的第一塊巧克力，因此他每一口都細細品嚐。<br/>
 pleasure and interest 樂趣；趣味；情趣 <br/>She felt that life had lost most of its savour. 她覺得生活失去了大部分樂趣。
+
+#  estimate
+to guess or calculate the cost, size, value, etc. of something 估計；估算；估價 
+
