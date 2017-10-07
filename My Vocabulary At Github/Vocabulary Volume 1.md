@@ -34,3 +34,8 @@ to do many things in a short period of time 急匆匆地做（許多事） <br/>
 I had to cram three countries into a week's business trip. 我出差一周跑了三個國家。
 to force a lot of things into a small space 塞滿；塞進；擠入 <br/>
 Eight children were crammed into the back of the car. 八個孩子被塞進了汽車的後座。
+
+# savour/ savor
+to enjoy food or an experience slowly, in order to enjoy it as much as possible 細品，享用（食物）<br/>
+It was the first chocolate he'd tasted for over a year, so he savoured every mouthful. 這是他一年多來吃到的第一塊巧克力，因此他每一口都細細品嚐。<br/>
+pleasure and interest 樂趣；趣味；情趣 <br/>She felt that life had lost most of its savour. 她覺得生活失去了大部分樂趣。
