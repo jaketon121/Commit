@@ -43,3 +43,6 @@ pleasure and interest 樂趣；趣味；情趣 <br/>She felt that life had lost 
 #  estimate
 to guess or calculate the cost, size, value, etc. of something 估計；估算；估價 
 
+# template
+something that is used as a pattern for producing other similar things 樣板，範本 
+
