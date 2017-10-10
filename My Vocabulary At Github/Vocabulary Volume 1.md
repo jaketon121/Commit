@@ -8,9 +8,9 @@ Urabn Dictionary <br/>http://www.urbandictionary.com/
 to state something as true:<br/> The suspect affirmed (that) he had been at home all evening.
 She affirmed her intention to apply for the post.
 
-# Trip Hop
-noun -a genre of electronic dance music combining hip-hop with softer psychedelic sounds and slower tempo
-
+# Trip-Hop
+noun -a genre of electronic dance music combining hip-hop with softer psychedelic sounds and slower tempo<br/>
+a type of popular dance music that has a slow beat, and is intended to create a relaxed mood. It is a mixture of hip-hop and reggae. <br/>神遊舞曲，迷幻舞曲（一種流行舞曲，其節奏較慢，以營造一種十分輕鬆的氣氛。它是嘻哈和雷鬼音樂混合而成的）
 # divergent
 Mean : pertaining to or causing divergence . 发散的 .
 
