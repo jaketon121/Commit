@@ -65,3 +65,7 @@ becoming organized after a period of change 安頓下來；調整就緒.
 # evolving
 to develop gradually, or to cause something or someone to develop gradually （使）逐步發展；（使）逐步演變；（使）逐漸形成；（使）進化
 <br/>Did humans evolve from apes? 人類是由猿進化而來的。
+
+# improvise
+to invent or make something, such as a speech or a device, at the time when it is needed without already having planned it 臨時做；即興做 
+I hadn't prepared a speech so I suddenly had to improvise. 我沒有準備演講，所以突然之間我只好即興講幾句。
