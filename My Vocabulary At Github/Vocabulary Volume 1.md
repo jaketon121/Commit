@@ -3,6 +3,12 @@ http://dictionary.cambridge.org/ <br/>
 http://www.dictionary.com/<br/>
 Urabn Dictionary <br/>http://www.urbandictionary.com/ 
 <p>https://translate.google.cn/ </p>
+
+#  Affirmatiom/affirm 
+to state something as true:<br/> The suspect affirmed (that) he had been at home all evening.
+She affirmed her intention to apply for the post.
+
+
 # divergent
 Mean : pertaining to or causing divergence . 发散的 .
 
