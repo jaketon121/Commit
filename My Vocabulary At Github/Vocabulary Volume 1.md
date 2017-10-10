@@ -61,3 +61,7 @@ extremely funny and causing a lot of laughter 非常滑稽的，引人發笑的 
 # Shakedown
 to look into, question, or scrutinize: She searched her conscience. <br/>
 becoming organized after a period of change 安頓下來；調整就緒.
+
+# evolving
+to develop gradually, or to cause something or someone to develop gradually （使）逐步發展；（使）逐步演變；（使）逐漸形成；（使）進化
+<br/>Did humans evolve from apes? 人類是由猿進化而來的。
