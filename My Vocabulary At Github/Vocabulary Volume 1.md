@@ -8,6 +8,8 @@ Urabn Dictionary <br/>http://www.urbandictionary.com/
 to state something as true:<br/> The suspect affirmed (that) he had been at home all evening.
 She affirmed her intention to apply for the post.
 
+# Trip Hop
+noun -a genre of electronic dance music combining hip-hop with softer psychedelic sounds and slower tempo
 
 # divergent
 Mean : pertaining to or causing divergence . 发散的 .
