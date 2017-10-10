@@ -1,3 +1,5 @@
+# The Complete Software Developer’s Career Guide  pdf 
+
 # Improve Your Social Skills
 
 https://www.amazon.com/gp/product/B00NJNQ3U6/ref=as_li_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00NJNQ3U6&linkCode=as2&tag=impyousocski-20&linkId=MNSCUY43EJHEZ4NF
