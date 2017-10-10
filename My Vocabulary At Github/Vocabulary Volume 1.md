@@ -58,3 +58,6 @@ a person who pretends to be someone else in order to deceive others 冒名頂替
 # hilarious 
 extremely funny and causing a lot of laughter 非常滑稽的，引人發笑的 He didn't like the film at all - I thought it was hilarious. 他根本就不喜歡這部電影——但我覺得它好笑極了。
 
+# Shakedown
+to look into, question, or scrutinize: She searched her conscience. <br/>
+becoming organized after a period of change 安頓下來；調整就緒.
