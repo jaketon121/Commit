@@ -6,6 +6,8 @@ CUMCLINIC SESSION 118
 https://www.pornhub.com/view_video.php?viewkey=ph573609525b226
 BALL TRAINING WORKOU<br/>
 https://www.pornhub.com/view_video.php?viewkey=ph58ea07f484feb <br/>
+SADO-LADIES SEXY MISTRESS SOMKING DOMINATION IN BLACK PANTYHOSE AND LEATHER
+https://www.pornhub.com/view_video.php?viewkey=ph583f6cad7a891
 # 这个Project算是杂合的吧，因为这是我第一个做的项目。 也算是做一个杂合的博客了。
 
 # 魔术
@@ -222,47 +224,4 @@ Sticking to the old ways of doing things no longer works. Pick up any issue of a
 
 （如何整理自己的人生）
 The Get Yourself Organized Project- 21 Steps to Less Mess and Stress[Team Nanban]tmrg
-http://pan.baidu.com/s/1bnHYyR1
-
-（如何打破心理障碍）
-心理定向与成功
-http://pan.baidu.com/s/1dEaWCRB
-
-
-
-# Joi 
- 2017-10-16 knee jerk
-DM OWNS U ABSOLUTELY, TRY TO RESIST...
-https://www.pornhub.com/view_video.php?viewkey=ph5878fac7267ac
-<br/>
-
-
-..............................
-Cock tease (sometimes cock-tease or cocktease or also prick-tease) is derisive sexual slang used to describe a person who acts in a sexual manner to seduce men without actually fulfilling the sexual actions. 
-LATEX JOI<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph57df6ff103200  <br/>
-EDGING WITH CONSEQUENCES II<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph585802dfec5c3 <br/>
-BOOT DOMINATION JOI<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph5919356d1d06e <br/>
-LEXIE FDHYPO BI TRAINING<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph581c767335e23 <br/>
-G0DDESS AMANDA - COERECED GAY/BI HYPNO <br/>
-https://www.pornhub.com/view_video.php?viewkey=ph586fed434fcb0 <br/>
-COCK TEASE <br/>
-https://www.pornhub.com/view_video.php?viewkey=ph58eedab1948a5<br/>
-DISGUSTING TOILET BITCH (GREAT NAME BTW)<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph5857a023bdb04<br/>
-ASSPLAY JOI<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph58ee1e121dde2<br/>
-YOURE-MY-BITCH<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph58d1441e40bf1<br/>
-AK - WHEEL OF MISFORTUNE<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph5727046d2abb3<br/>
-AS 15 MINUTE EDGING JOI<br/>
-https://www.pornhub.com/view_video.php?viewkey=ph586cb05e3f50a <br/>
-JOI ON Amanda <br/>
-https://www.pornhub.com/view_video.php?viewkey=ph585a86ff8a65a&pkey=31821471 <br/>
-
-HIGH END COCK TRAINING WITH MANDY FLORES<br/>
-https://www.pornhub.com/view_video.php?viewkey=739089171<br/>
+http://pan.baidu.com/s/1
