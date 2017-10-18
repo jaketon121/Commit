@@ -232,6 +232,7 @@ https://www.pornhub.com/view_video.php?viewkey=ph5878fac7267ac
 
 
 ..............................
+Cock tease (sometimes cock-tease or cocktease or also prick-tease) is derisive sexual slang used to describe a person who acts in a sexual manner to seduce men without actually fulfilling the sexual actions. 
 LATEX JOI
 https://www.pornhub.com/view_video.php?viewkey=ph57df6ff103200  <br/>
 EDGING WITH CONSEQUENCES II
