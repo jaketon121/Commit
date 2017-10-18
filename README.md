@@ -240,7 +240,8 @@ BOOT DOMINATION JOI
 https://www.pornhub.com/view_video.php?viewkey=ph5919356d1d06e <br/>
 LEXIE FDHYPO BI TRAINING
 https://www.pornhub.com/view_video.php?viewkey=ph581c767335e23 <br/>
-
+G0DDESS AMANDA - COERECED GAY/BI HYPNO 
+https://www.pornhub.com/view_video.php?viewkey=ph586fed434fcb0 <br/>
 
 
 
