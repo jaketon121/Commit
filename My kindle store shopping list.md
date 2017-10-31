@@ -12,3 +12,9 @@ https://www.amazon.com/ReWired-S-R-Johannes-ebook/dp/B0752Z6V3W/ref=la_B006CBEBA
 
 # The Complete Mistress Manual: The Ultimate Good Girl's Guide to Female Dominance Audiobook
 How to Assert Dominance to ANY Female
+
+
+---------------------------------------------
+You've Got What It Takes: No matter what you are trying hard to achieve, you've got what it takes to achieve success. Kindle Edition
+<br/>
+https://www.amazon.com/dp/B074XG31T1/ref=dp_sp_detail?psc=1
