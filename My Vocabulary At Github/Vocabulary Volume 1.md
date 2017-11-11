@@ -77,3 +77,7 @@ to develop gradually, or to cause something or someone to develop gradually （�
 # improvise
 to invent or make something, such as a speech or a device, at the time when it is needed without already having planned it 臨時做；即興做 
 I hadn't prepared a speech so I suddenly had to improvise. 我沒有準備演講，所以突然之間我只好即興講幾句。
+
+# espouse
+adopt or support (a cause, belief, or way of life).
+"he turned his back on the modernism he had espoused in his youth"
